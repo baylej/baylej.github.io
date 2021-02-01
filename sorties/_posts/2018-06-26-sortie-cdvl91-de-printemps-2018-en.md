@@ -3,7 +3,7 @@ layout: post
 title: printemps 2018 en Basse Normandie
 date: '2018-06-26T09:38:00.003-07:00'
 author: robert le valentinois
-thumbnail: https://2.bp.blogspot.com/-ruVBUuJDCTs/WzEZZVnEXfI/AAAAAAAAB1M/xD89xHuAyP8R-ZYphUtvr5GaZG2c_qDDgCEwYBhgL/s72-c/2%2Bamants%2B1806%2B0.jpg
+thumbnail: ae7295b4-4030-446f-ab04-e8e4bcef9c49.jpg
 ---
  **Sortie CDVL91 de printemps 2018 en Basse Normandie**
 
@@ -21,12 +21,12 @@ Article de Philippe Battarel du club Migrateurs
 
  Au rendez-vous 15 mordus, avec un premier rassemblement, en matinée, à la colline des «&nbsp; **Deux Amants** &nbsp;», pour un «&nbsp;plouf&nbsp;de défroissage&nbsp;» en attendant la marée basse sur les côtes normandes.  
 
-[![](https://2.bp.blogspot.com/-ruVBUuJDCTs/WzEZZVnEXfI/AAAAAAAAB1M/xD89xHuAyP8R-ZYphUtvr5GaZG2c_qDDgCEwYBhgL/s640/2%2Bamants%2B1806%2B0.jpg)](https://2.bp.blogspot.com/-ruVBUuJDCTs/WzEZZVnEXfI/AAAAAAAAB1M/xD89xHuAyP8R-ZYphUtvr5GaZG2c_qDDgCEwYBhgL/s1600/2%2Bamants%2B1806%2B0.jpg)
+[![](b98a1c0b-2155-4485-a0ef-f42920d6d5dc.jpg)](c364f419-8fc0-4055-9920-6e2b1c370ead.jpg)
 
 &nbsp;depuis le déco des 2 amants: la Seine et l'étang pour la pratique des stages SIV en Normandie  
   
 
-[![](https://3.bp.blogspot.com/-qXW5T_2CGiM/WzEZy2DDipI/AAAAAAAAB1s/Yg-ZBxdXiy4YkEtGk_aV8ZavL_8LOkCnQCEwYBhgL/s640/2%2Bamants%2B1806%2B2.jpg)](https://3.bp.blogspot.com/-qXW5T_2CGiM/WzEZy2DDipI/AAAAAAAAB1s/Yg-ZBxdXiy4YkEtGk_aV8ZavL_8LOkCnQCEwYBhgL/s1600/2%2Bamants%2B1806%2B2.jpg)
+[![](813b1a52-d046-4f91-b2c4-cd9b4407de38.jpg)](5ae95d94-5f5f-4ded-99d0-d0f276f4cb29.jpg)
 
 une fois qu'on a décollé, en bas le triangle de l'atterro  
   
@@ -36,7 +36,7 @@ une fois qu'on a décollé, en bas le triangle de l'atterro
  Ce petit vol terminé, direction **Commes** pour un pique-nique dans la bonne humeur. Sur place 2-3 vols pour une partie du groupe, l’autre partie est directement allée à **Vierville-sur-Mer** , mieux orienté dans un vent NNE&nbsp; pour quelques vols avant la fin de la journée. Dans l’ensemble bonnes conditions pour tout le monde&nbsp;!  
   
 
-[![](https://1.bp.blogspot.com/-UnTkl2c6LAk/WzN4BgrSoNI/AAAAAAAAB3k/4C-62prSy2c5TrJ4Ja_b9RpSl2ojNfoKACLcBGAs/s640/normandie%2B1806.jpg)](https://1.bp.blogspot.com/-UnTkl2c6LAk/WzN4BgrSoNI/AAAAAAAAB3k/4C-62prSy2c5TrJ4Ja_b9RpSl2ojNfoKACLcBGAs/s1600/normandie%2B1806.jpg)
+[![](b09d5469-0ec0-43a9-96c9-fbe7d2fcd55d.jpg)](72d0df5f-eabd-4f50-8e37-56335888197f.jpg)
   
   
 
@@ -45,18 +45,18 @@ une fois qu'on a décollé, en bas le triangle de l'atterro
 Dans l’ensemble bonnes conditions pour tout le monde&nbsp;!  
   
 
-[![](https://1.bp.blogspot.com/-Ka3f37WmBlQ/WzEaGKAer3I/AAAAAAAAB2Q/cPxzqbQvASIdL7AsMwaS7vO4UqMtVyBiACEwYBhgL/s640/Vierville%2B1806%2BRJ%2B.JPG)](https://1.bp.blogspot.com/-Ka3f37WmBlQ/WzEaGKAer3I/AAAAAAAAB2Q/cPxzqbQvASIdL7AsMwaS7vO4UqMtVyBiACEwYBhgL/s1600/Vierville%2B1806%2BRJ%2B.JPG)
+[![](94b3b848-171c-4b42-bb00-a275cc469bdd.jpg)](2008c3f8-8528-4797-88aa-d3e40551704a.jpg)
 
 Déco de Vierville: Renaud J. des Migrateurs, est venu en voisin&nbsp; nous donner son bulletin  
   
 
-[![](https://3.bp.blogspot.com/-kw4PrIuhdic/WzEZwh_HXII/AAAAAAAAB1o/Qp_hoNWQxIwBZLuLXL5mcWPPTDEJfPwaACEwYBhgL/s640/Commes%2B1806%2B%25281%2529.JPG)](https://3.bp.blogspot.com/-kw4PrIuhdic/WzEZwh_HXII/AAAAAAAAB1o/Qp_hoNWQxIwBZLuLXL5mcWPPTDEJfPwaACEwYBhgL/s1600/Commes%2B1806%2B%25281%2529.JPG)
+[![](a13c0ce9-6a69-4374-b520-7b4c3be8b8a1.jpg)](35d36d2f-b322-41d9-9e05-9af215b7a48e.jpg)
 
  arrivée au déco de Commes: Philippe B. sort son matériel, on a le temps, la marée descend 
 
   
 
-[![](https://3.bp.blogspot.com/-8NS2J3QneOg/WzEZsdHzi9I/AAAAAAAAB1s/hzVkH0t0Fa02mDdj1BCWswNP0G8dny6LwCEwYBhgL/s640/Philippe%2BCommes%2B1806.jpg)](https://3.bp.blogspot.com/-8NS2J3QneOg/WzEZsdHzi9I/AAAAAAAAB1s/hzVkH0t0Fa02mDdj1BCWswNP0G8dny6LwCEwYBhgL/s1600/Philippe%2BCommes%2B1806.jpg)
+[![](0dd71379-84ba-4196-b4bd-78a7fb9a79f3.jpg)](ed816bb7-5b47-4aa8-b256-23aeefdf12cb.jpg)
 
  &nbsp;Philippe B. toujours discret 
 
@@ -77,12 +77,12 @@ au loin, Port-en-Bessin
  En soirée le groupe s’est retrouvé au camping de Portland où gite et couverts nous étaient réservés, pour un bon repas et un repos bien mérité.  
   
 
-[![](https://3.bp.blogspot.com/-9YF6sLfdBr4/WzEZyUlZ2MI/AAAAAAAAB1o/DFY6GdFkBPUWXsOpGaGzcWFGSMbznuuJQCEwYBhgL/s640/Portland%2B1806%2B1.jpg)](https://3.bp.blogspot.com/-9YF6sLfdBr4/WzEZyUlZ2MI/AAAAAAAAB1o/DFY6GdFkBPUWXsOpGaGzcWFGSMbznuuJQCEwYBhgL/s1600/Portland%2B1806%2B1.jpg)
+[![](aadd0bc9-5971-4363-9b1c-2768dd70a406.jpg)](4dbf88d9-2b11-4e5e-8bfe-12e4d1a4e1d0.jpg)
 
 &nbsp;Sabrina, Brigitte, Raymond, Philippe B., Claude, Pascal, Pierre..  
   
 
-[![](https://1.bp.blogspot.com/-oK2h-ayo5TM/WzEZzRtv12I/AAAAAAAAB1w/SgsDEI2olbINSxeiRR9KgBf61ABKLY_-ACEwYBhgL/s640/Portland%2B1806%2B2.jpg)](https://1.bp.blogspot.com/-oK2h-ayo5TM/WzEZzRtv12I/AAAAAAAAB1w/SgsDEI2olbINSxeiRR9KgBf61ABKLY_-ACEwYBhgL/s1600/Portland%2B1806%2B2.jpg)
+[![](8981b578-c652-46aa-bc5a-fdf7935e78cc.jpg)](ddfdd405-383f-46d4-bc53-6262b8f4e0cb.jpg)
 
 Alain R., Philippe P, Jonathan (Johnny), Alain B (son papa), Robert, Xavier, Mme et Patrick,...  
   
@@ -94,7 +94,7 @@ Alain R., Philippe P, Jonathan (Johnny), Alain B (son papa), Robert, Xavier, Mme
  Les conditions aérologiques nous orientent sur Vierville. Quelques vols, mais pas autant que nous espérions&nbsp;: le vent nous a manqué&nbsp;! Mais qu’à cela ne tienne petite séance de gonflage pour certains, ça ne fait jamais de mal&nbsp;et «&nbsp;bronzette&nbsp;» pour les autres.  
   
 
-[![](https://4.bp.blogspot.com/-JrZUqArLV30/WzEaBf8SEGI/AAAAAAAAB2I/2i7O0Bu7yJcdwHOmE6Hwombq6gVfzAC6wCEwYBhgL/s640/Vierville%2B1806%2B1%2B.jpg)](https://4.bp.blogspot.com/-JrZUqArLV30/WzEaBf8SEGI/AAAAAAAAB2I/2i7O0Bu7yJcdwHOmE6Hwombq6gVfzAC6wCEwYBhgL/s1600/Vierville%2B1806%2B1%2B.jpg)
+[![](cdfc8205-e77d-4126-abb4-6a843c52c7b0.jpg)](07ad8335-5fb0-4e3a-a980-887912b5993a.jpg)
 
 &nbsp;dans peu de temps, Sabrina va consolider son savoir faire du dos voile, d'autres décolleront pour un atterrissage sur la plage du débarquement OMAHA Beach&nbsp;  
   
@@ -103,7 +103,7 @@ Alain R., Philippe P, Jonathan (Johnny), Alain B (son papa), Robert, Xavier, Mme
   
   
 
-[![](https://3.bp.blogspot.com/-9eYrGjp5vIw/WzEaN0IR9AI/AAAAAAAAB2M/XryCwTrmeVUu6PzgDldYF-ANpQuDA7n2gCEwYBhgL/s640/vierville%2B1806%2B3.jpg)](https://3.bp.blogspot.com/-9eYrGjp5vIw/WzEaN0IR9AI/AAAAAAAAB2M/XryCwTrmeVUu6PzgDldYF-ANpQuDA7n2gCEwYBhgL/s1600/vierville%2B1806%2B3.jpg)
+[![](8b7591e3-30d9-442e-b5c7-38104fcf8b44.jpg)](32dd3c85-1c51-4fc8-92b2-d5876679f4c4.jpg)
 
 la falaise de Vierville  
   

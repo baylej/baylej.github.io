@@ -3,7 +3,7 @@ layout: post
 title: Téléthon 2016 Courcouronnes
 date: '2017-01-20T07:53:00.000-08:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-q7Xgc4EyS2Q/WIIxjIcx4vI/AAAAAAAAA2U/S8PDxCzh-U4__8psOGqzSJz5bs5mPQ_bQCLcB/s72-c/telethon%2B%2B2016%2B1.jpg
+thumbnail: 06b21085-1481-402c-99c1-536e397f36cf.jpg
 ---
 Compte rendu Téléthon 2016
 
@@ -14,7 +14,7 @@ Samedi 3 Décembre&nbsp;
 Pour voir les photos &nbsp;du téléthon 2016 écrire **à:** [hugmauras@wanadoo.fr](mailto:hugmauras@wanadoo.fr)  
 &nbsp; pour recevoir le lien  
 
-[![](https://1.bp.blogspot.com/-q7Xgc4EyS2Q/WIIxjIcx4vI/AAAAAAAAA2U/S8PDxCzh-U4__8psOGqzSJz5bs5mPQ_bQCLcB/s400/telethon%2B%2B2016%2B1.jpg)&nbsp;](https://1.bp.blogspot.com/-q7Xgc4EyS2Q/WIIxjIcx4vI/AAAAAAAAA2U/S8PDxCzh-U4__8psOGqzSJz5bs5mPQ_bQCLcB/s1600/telethon%2B%2B2016%2B1.jpg)
+[![](0e8e6cd0-d647-49e8-89d6-d0cfc66c37b8.jpg)&nbsp;](31fdaff1-f044-46a9-9297-6dee3dbff6ed.jpg)
 
   
 
@@ -22,7 +22,7 @@ Ce 4ème Téléthon organisé conjointement par le club Globe Trot'air et le CDV
 
   
 
-[![](https://1.bp.blogspot.com/-yFQXYOdxeS0/WIIxinxuFLI/AAAAAAAAA2M/rLip6KfafwklJRxoRVa2CMk_-7D2YH7GwCEw/s640/telethon%2B2016%2B2.jpg)](https://1.bp.blogspot.com/-yFQXYOdxeS0/WIIxinxuFLI/AAAAAAAAA2M/rLip6KfafwklJRxoRVa2CMk_-7D2YH7GwCEw/s1600/telethon%2B2016%2B2.jpg)
+[![](24569f1c-2655-4e25-82b4-3cbdd7459d69.jpg)](be5c1fca-8548-4037-b044-fa276253b4b0.jpg)
 
   
 
@@ -37,7 +37,7 @@ __Quelques chiffres__ :
 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2 initiations  
   
 
-[![](https://3.bp.blogspot.com/-JWq6ezEuP40/WIIxi4dcRmI/AAAAAAAAA2Y/xUdIL9CfcZMksO1iJinLTrijVzoCa9lrwCEw/s640/telethon%2B2016%2B3.jpg)](https://3.bp.blogspot.com/-JWq6ezEuP40/WIIxi4dcRmI/AAAAAAAAA2Y/xUdIL9CfcZMksO1iJinLTrijVzoCa9lrwCEw/s1600/telethon%2B2016%2B3.jpg)
+[![](b6913e8e-29ac-48e5-80db-ce36b464e62e.jpg)](971ec998-49bf-4b8c-b133-8d09a53c239c.jpg)
   
 
 __Résultats__ :

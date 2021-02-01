@@ -3,7 +3,7 @@ layout: post
 title: Telethon vol libre 2017 à Courcouronnes
 date: '2017-12-18T02:56:00.001-08:00'
 author: robert le valentinois
-thumbnail: https://2.bp.blogspot.com/-4Omt8o43MNM/WjeemXEiULI/AAAAAAAABHo/KDbwpeY_5QUSfL_BIp-kC0S1DUtmyiORwCLcBGAs/s72-c/171210%2BVL%2BTelethon%2B2017%2BCourc%2BAH.JPG
+thumbnail: f3afd22f-d0a4-4f97-b05b-3e8e335adb04.jpg
 ---
  **Compte rendu téléthon 2017 Vol libre à Courcouronnes**
 
@@ -13,7 +13,7 @@ Cette journée du Samedi 9 Décembre a commencé par un froid glacial mais très
 
   
 
-[![](https://2.bp.blogspot.com/-4Omt8o43MNM/WjeemXEiULI/AAAAAAAABHo/KDbwpeY_5QUSfL_BIp-kC0S1DUtmyiORwCLcBGAs/s640/171210%2BVL%2BTelethon%2B2017%2BCourc%2BAH.JPG)](https://2.bp.blogspot.com/-4Omt8o43MNM/WjeemXEiULI/AAAAAAAABHo/KDbwpeY_5QUSfL_BIp-kC0S1DUtmyiORwCLcBGAs/s1600/171210%2BVL%2BTelethon%2B2017%2BCourc%2BAH.JPG)
+[![](ed0c6ae6-906a-44da-98bd-eab2ea362ddb.jpg)](e3e3fe2b-cfa2-4e2d-b387-c6aa7d696e10.jpg)
 
 Merci à tous ceux qui se sont déplacés pour installer le site, aider à l'organisation , participer au défi de cette épreuve collective par leurs nombreux vols, ou tout simplement nous rendre visite au cours de la journée .
 

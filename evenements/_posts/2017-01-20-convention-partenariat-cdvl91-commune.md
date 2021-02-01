@@ -3,7 +3,7 @@ layout: post
 title: Convention partenariat  CDVL91-commune de Malay-le-Grand
 date: '2017-01-20T08:32:00.003-08:00'
 author: robert le valentinois
-thumbnail: https://4.bp.blogspot.com/-hZFU65E5G4g/WII6K3GixeI/AAAAAAAAA3E/m1T6-b_38dsFVzpZ3U0n6_DOEuvKAJESACLcB/s72-c/blason%2BMalay.jpg
+thumbnail: 1c819881-1f1a-4d28-bb9b-73f1f039a0d1.jpg
 ---
 ## **Convention partenariat&nbsp; CDVL91-commune de Malay-le-Grand**
 Compte rendu de la signature de la convention à usage du vol libre du site de Malay-le-Grand
@@ -32,18 +32,18 @@ Compte rendu de la signature de la convention à usage du vol libre du site de M
 
 ----
 
-[![](https://4.bp.blogspot.com/-hZFU65E5G4g/WII6K3GixeI/AAAAAAAAA3E/m1T6-b_38dsFVzpZ3U0n6_DOEuvKAJESACLcB/s1600/blason%2BMalay.jpg)](https://4.bp.blogspot.com/-hZFU65E5G4g/WII6K3GixeI/AAAAAAAAA3E/m1T6-b_38dsFVzpZ3U0n6_DOEuvKAJESACLcB/s1600/blason%2BMalay.jpg)
-&nbsp;[![](https://4.bp.blogspot.com/-CUYl9GVLJFk/WAsw0hodKTI/AAAAAAAAAxM/nz4xkIamgiAC3KEtJ8wL_TDV0LksTZIeQCLcB/s640/discours%2Bmaire%2BMalay.jpg)&nbsp;](https://4.bp.blogspot.com/-CUYl9GVLJFk/WAsw0hodKTI/AAAAAAAAAxM/nz4xkIamgiAC3KEtJ8wL_TDV0LksTZIeQCLcB/s1600/discours%2Bmaire%2BMalay.jpg)  
+[![](a320c240-432e-4b10-acbf-bf4c925c1103.jpg)](a320c240-432e-4b10-acbf-bf4c925c1103.jpg)
+&nbsp;[![](7bd70424-416a-4318-b139-494676457e41.jpg)&nbsp;](9bea3720-c227-4615-a146-5e408eecc00d.jpg)  
   
 
-[![](https://4.bp.blogspot.com/-s4cHqsei-CM/WII6x-mgo7I/AAAAAAAAA3M/DKUkNXiPO-cwevM2OG-mPURjVvulSMU5gCLcB/s640/signature%2Bmalay.jpg)](https://4.bp.blogspot.com/-s4cHqsei-CM/WII6x-mgo7I/AAAAAAAAA3M/DKUkNXiPO-cwevM2OG-mPURjVvulSMU5gCLcB/s1600/signature%2Bmalay.jpg)
+[![](9e1b6d20-31d2-428b-b017-7dd7f9bf853b.jpg)](841ec320-9275-48c9-a643-330ec3bd9472.jpg)
 &nbsp;  
  &nbsp;Madame le maire de Malay-le-Grand , Madame la représentante Enedis et le président des Glob-trot'air&nbsp; lors de la signature  
   
  un article circonstancier du journal régional:  
   
 
-[![](https://4.bp.blogspot.com/-m9El50YFYR4/WII7d9MmOFI/AAAAAAAAA3U/WBjImGikeEIZ6__lj4jOcfxKmuPhUz68QCLcB/s640/article%2Bpresse.jpg)](https://4.bp.blogspot.com/-m9El50YFYR4/WII7d9MmOFI/AAAAAAAAA3U/WBjImGikeEIZ6__lj4jOcfxKmuPhUz68QCLcB/s1600/article%2Bpresse.jpg)
+[![](289a75ec-36ea-4303-aa3c-6a3027371df6.jpg)](36ddcb9c-44e5-48e1-a227-5f35b31b9452.jpg)
   
   
  fin de l'article  

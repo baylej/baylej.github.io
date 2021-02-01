@@ -3,9 +3,9 @@ layout: post
 title: Printemps 2019 Quend-Plage  Picardie
 date: '2019-08-01T07:45:00.001-07:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-WoDHAe-v6Kg/XUL4uZUggoI/AAAAAAAADRM/XxZebVUvDKUd7t418BdCbwYsF551aF8XwCLcBGAs/s72-c/20190525_105009.jpg
+thumbnail: 602bd6bd-1189-4432-a4fe-d381612c57bd.jpg
 ---
-## [Quend\_Plage&nbsp; Picardie&nbsp; Printemps 2019](https://1.bp.blogspot.com/-WoDHAe-v6Kg/XUL4uZUggoI/AAAAAAAADRM/XxZebVUvDKUd7t418BdCbwYsF551aF8XwCLcBGAs/s1600/20190525_105009.jpg)
+## [Quend\_Plage&nbsp; Picardie&nbsp; Printemps 2019](468dd2f3-1b1f-49a1-8b8e-eaf01a563c9f.jpg)
 
 &nbsp;
 
@@ -15,12 +15,12 @@ thumbnail: https://1.bp.blogspot.com/-WoDHAe-v6Kg/XUL4uZUggoI/AAAAAAAADRM/XxZebV
 
   
 
- ![](https://1.bp.blogspot.com/-WoDHAe-v6Kg/XUL4uZUggoI/AAAAAAAADRM/XxZebVUvDKUd7t418BdCbwYsF551aF8XwCLcBGAs/s640/20190525_105009.jpg)
+ ![](30da518c-5743-4c72-a1b2-48c54fdb6f14.jpg)
   
 
-[![](https://1.bp.blogspot.com/-ei23HkbrXpk/XUL4ygMHUxI/AAAAAAAADRU/K8AjGQABYGEfRNHJnyiOhoLeHPrX6HjowCLcBGAs/s640/20190525_124217.jpg)](https://1.bp.blogspot.com/-ei23HkbrXpk/XUL4ygMHUxI/AAAAAAAADRU/K8AjGQABYGEfRNHJnyiOhoLeHPrX6HjowCLcBGAs/s1600/20190525_124217.jpg)
+[![](6fbfcc42-b8de-487b-83aa-0302b56d4512.jpg)](8e3296d2-8859-4291-bcd9-61ffeccf1194.jpg)
   
 
-[![](https://1.bp.blogspot.com/-PfDSRCcLBKo/XUL4whGgDUI/AAAAAAAADRQ/0tsmk6SN5nsc-EyTr2YW9OVVNKMFehUfQCLcBGAs/s640/20190526_115059.jpg)](https://1.bp.blogspot.com/-PfDSRCcLBKo/XUL4whGgDUI/AAAAAAAADRQ/0tsmk6SN5nsc-EyTr2YW9OVVNKMFehUfQCLcBGAs/s1600/20190526_115059.jpg)
+[![](ddb2de06-36c8-46cb-9d65-e3b0c8889f90.jpg)](abda382e-9b7b-4e47-8326-8e4d373362bd.jpg)
 
 &nbsp;Alain BAYLE

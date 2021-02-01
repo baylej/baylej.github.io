@@ -3,7 +3,7 @@ layout: post
 title: Nettoyage de printemps du site de Malay  (fév 2020)
 date: '2020-03-02T03:32:00.004-08:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-cP9ZYGy95is/XlzuESAc4vI/AAAAAAAADYg/QxAwz3COSJwolRptQgxg_yTfbBskg25oQCEwYBhgL/s72-c/20200229_malay3.jpeg.jpg
+thumbnail: 06a6e9a6-bbc4-47a5-84a1-c27fefa6a92b.jpg
 ---
  Samedi 29 Février , c'était un pari risqué de maintenir le nettoyage du site de Malay le Grand .
 
@@ -16,12 +16,12 @@ thumbnail: https://1.bp.blogspot.com/-cP9ZYGy95is/XlzuESAc4vI/AAAAAAAADYg/QxAwz3
 &nbsp;&nbsp;&nbsp; Quelle surprise, en arrivant dès 9h30 du matin, d'observer un terrain sec , un ciel nuageux mais pas encore menaçant et une exposition à l'abri du vent .  
  &nbsp;  
 
-[![](https://1.bp.blogspot.com/-cP9ZYGy95is/XlzuESAc4vI/AAAAAAAADYg/QxAwz3COSJwolRptQgxg_yTfbBskg25oQCEwYBhgL/s640/20200229_malay3.jpeg.jpg)](https://1.bp.blogspot.com/-cP9ZYGy95is/XlzuESAc4vI/AAAAAAAADYg/QxAwz3COSJwolRptQgxg_yTfbBskg25oQCEwYBhgL/s1600/20200229_malay3.jpeg.jpg)
+[![](8c87dbb1-26cb-4f85-9389-00fbfc2f1e28.jpg)](090b2974-3c4a-4778-ad68-12bfb8caf7f4.jpg)
 &nbsp;Nous nous sommes vite affairés avec tronçonneuse, tondeuse et 4 débroussailleuses pour rendre le décollage propre pour la saison .
 
  A 11h30 nous terminions le débroussaillage en même temps que l'arrivée de la pluie .&nbsp;
 
-[![](https://1.bp.blogspot.com/-dKr7ev0CKZY/XlzuDxzdXZI/AAAAAAAADYQ/fRQPrqm3TmERNAtlu7gsPWHrBX7SYaR8ACEwYBhgL/s640/20200229_malay2.jpeg.jpg)](https://1.bp.blogspot.com/-dKr7ev0CKZY/XlzuDxzdXZI/AAAAAAAADYQ/fRQPrqm3TmERNAtlu7gsPWHrBX7SYaR8ACEwYBhgL/s1600/20200229_malay2.jpeg.jpg)
+[![](f153952e-9ca9-4b97-aaff-96209983b89d.jpg)](2d28e05d-3be6-4188-8ec6-f459867d3af8.jpg)
   
 
   

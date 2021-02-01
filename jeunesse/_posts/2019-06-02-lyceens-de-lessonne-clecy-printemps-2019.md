@@ -3,16 +3,16 @@ layout: post
 title: Lycéens de  l'Essonne à Clecy  printemps 2019
 date: '2019-06-02T02:15:00.001-07:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-iZjblXpfvPY/XPOS35CPIHI/AAAAAAAADOY/3qP3Vjpugl8frH5MiA1shaO3zhmnI_CiACLcBGAs/s72-c/IMG_7841.JPG
+thumbnail: 6f3c8bdd-f0cd-4150-9aeb-9905c92e2eda.jpg
 ---
 sortie Clécy printemps 2019  
 d' Hugues Mauras
 
  Pour sa 8ème édition , 16 élèves des Lycée Rosa park de Montgeron et Robert Doisneau de Corbeil ( 9 filles et 7 garçons ), ont participé au stage de parapente du 20 Mai au 24 Mai 2019 à Clécy en Normandie . Après 3 jours de pente école dans des conditions plutôt calmes, alterné avec des cours théoriques et des repérages des terrains d'atterrissages et de décollages,&nbsp; les 16 jeunes ont pu s'élancer pour leur premier grand vol en solo . Le vent au décollage était plus soutenu mais tous ont parfaitement gérer leur aile , à la grande satisfaction des moniteurs Samuel et Françoise .Le lendemain les conditions météorologiques ( vent de NO ) nous ont conduit à choisir le site d'Octeville . Le vent laminaire mais également soutenu a permis à chacun de renouveler cette expérience&nbsp; d' un deuxième vol dans des conditions environnementales bien différentes . La marée montante réduisant l'espace d'atterrissage n'a pas permis de réaliser un troisième vol pour chacun . Le groupe très solidaire dans toutes les tâches de vie commune s'est séparée à notre retour à Montgeron sous une pluie fine . Merci aux moniteurs et à l'encadrement ( Françoise, Sophie, Samuel, Gwenael et Hugues ) pour leur dévouement, leur patience et leurs encouragements . Merci à la ligue PIDF de vol libre pour leur aide , merci au cdvl91 pour leur soutien à ce projet et merci au Lycée Robert Doisneau pour la mise à disposition du minibus .&nbsp;
 
-[![](https://1.bp.blogspot.com/-iZjblXpfvPY/XPOS35CPIHI/AAAAAAAADOY/3qP3Vjpugl8frH5MiA1shaO3zhmnI_CiACLcBGAs/s640/IMG_7841.JPG)](https://1.bp.blogspot.com/-iZjblXpfvPY/XPOS35CPIHI/AAAAAAAADOY/3qP3Vjpugl8frH5MiA1shaO3zhmnI_CiACLcBGAs/s1600/IMG_7841.JPG)
+[![](d564fc0a-1358-4d3e-8aaa-26187f2c9d07.jpg)](5d40bad1-8f5a-427b-931d-20b060a245e6.jpg)
 
-[![](https://1.bp.blogspot.com/-93NkHWEesfg/XPOTcIfpd9I/AAAAAAAADOg/C-DXVo3LPQc0xB4XpoGBxwZEDnfGb0VBgCLcBGAs/s640/Snapchat-1155667649.jpg)](https://1.bp.blogspot.com/-93NkHWEesfg/XPOTcIfpd9I/AAAAAAAADOg/C-DXVo3LPQc0xB4XpoGBxwZEDnfGb0VBgCLcBGAs/s1600/Snapchat-1155667649.jpg)
+[![](a14981c4-eb4d-4268-bf03-f255b2c22851.jpg)](bdd6a97d-d6cb-4f50-96ec-88c525e12bf9.jpg)
 
 | 
 

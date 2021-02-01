@@ -3,12 +3,12 @@ layout: post
 title: Préparation et vols de distance  (jan 2017)
 date: '2017-01-07T09:58:00.001-08:00'
 author: robert le valentinois
-thumbnail: https://2.bp.blogspot.com/-qBQ2KPH3IHs/WHIc42e3dCI/AAAAAAAAAzo/SftoPMr1JBsPwsvVQ7tnLDflMv163XpFgCLcB/s72-c/Bandeau%2BCDVL91%2B2017.jpg
+thumbnail: c2ec7225-9d8d-4bcd-a90e-669d2f3af891.jpg
 ---
   
   
 
-[![](https://2.bp.blogspot.com/-qBQ2KPH3IHs/WHIc42e3dCI/AAAAAAAAAzo/SftoPMr1JBsPwsvVQ7tnLDflMv163XpFgCLcB/s640/Bandeau%2BCDVL91%2B2017.jpg)](https://2.bp.blogspot.com/-qBQ2KPH3IHs/WHIc42e3dCI/AAAAAAAAAzo/SftoPMr1JBsPwsvVQ7tnLDflMv163XpFgCLcB/s1600/Bandeau%2BCDVL91%2B2017.jpg)
+[![](bb6920b0-83d7-4561-849e-72a3ea6ba781.jpg)](4f7fbbb5-e9b5-4cc5-a211-415a093c41fa.jpg)
 
 ## Préparation et vols de distance
 
@@ -57,11 +57,11 @@ A. Bayle
 
   
 
-[![](https://2.bp.blogspot.com/-JDTqUvTBFfs/WHKMbQxBPTI/AAAAAAAAAz4/D33DLNGAwCgNC5N5ovf_yHI0HQWuGkPpgCLcB/s640/Image1.jpg)](https://2.bp.blogspot.com/-JDTqUvTBFfs/WHKMbQxBPTI/AAAAAAAAAz4/D33DLNGAwCgNC5N5ovf_yHI0HQWuGkPpgCLcB/s1600/Image1.jpg)
+[![](04696c6b-f7b4-42b6-a306-7945b408c685.jpg)](4ef3b0ea-317d-4a2b-b408-934736545f49.jpg)
 
   
 
-[![](https://3.bp.blogspot.com/-idYsRM9-1t8/WHEhNmPHlMI/AAAAAAAAAzI/eUMyDmGfHpAbQwTieksJy6q8mPbenBw3ACLcB/s640/martin%2Bmorlet%2B20170107.jpg)](https://3.bp.blogspot.com/-idYsRM9-1t8/WHEhNmPHlMI/AAAAAAAAAzI/eUMyDmGfHpAbQwTieksJy6q8mPbenBw3ACLcB/s1600/martin%2Bmorlet%2B20170107.jpg)
+[![](e5379b1f-d84e-4379-849d-d816254fb8db.jpg)](0bbbf6af-5b6b-451e-92f8-1de424400dec.jpg)
 
   
 
@@ -101,7 +101,7 @@ A. Bayle
 
   
 
-[![](https://4.bp.blogspot.com/-g45K9f8k0R0/WHEq9nd1ffI/AAAAAAAAAzY/Gbbd2DDqM84tk4cHX6jyc4ORcgIi45BNwCLcB/s320/gisement.jpg)](https://4.bp.blogspot.com/-g45K9f8k0R0/WHEq9nd1ffI/AAAAAAAAAzY/Gbbd2DDqM84tk4cHX6jyc4ORcgIi45BNwCLcB/s1600/gisement.jpg)
+[![](5fbee93a-2f71-4234-99f6-f235dcb45bb5.jpg)](818264c0-32d6-4722-a6bc-393d45eb776d.jpg)
 
  le gisement est positif de 0 à 180° (sens horaire) 
 
@@ -110,4 +110,4 @@ A. Bayle
   
 
  R.A. 
-[&nbsp;](https://2.bp.blogspot.com/-stp8_0j_3Bs/WHEgxq-hPmI/AAAAAAAAAzE/iM00Bq_1kUsL4dsvgLdsuEyNMovJFaKigCLcB/s1600/20170107_100812.jpg)
+[&nbsp;](2de455cb-54c4-40e2-b8c5-44ef22468067.jpg)

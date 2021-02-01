@@ -3,7 +3,7 @@ layout: post
 title: formation PSC1 novembre 2015  à Lisses (91)
 date: '2015-12-08T05:57:00.000-08:00'
 author: robert le valentinois
-thumbnail: http://3.bp.blogspot.com/-Gi2TP6hS3_g/VmbfhGZAnyI/AAAAAAAAApI/I6gK50lX78s/s72-c/20151121_184600.jpg
+thumbnail: ce442d39-a9fc-470c-b6b6-6df8344cb43a.jpg
 ---
 
 **Formation secourisme PSC1**
@@ -42,7 +42,7 @@ Le 21 novembre 2015 au centre de formation ADP91 à Lisses (91)
 
   
 
-[![](http://3.bp.blogspot.com/-Gi2TP6hS3_g/VmbfhGZAnyI/AAAAAAAAApI/I6gK50lX78s/s640/20151121_184600.jpg)](http://3.bp.blogspot.com/-Gi2TP6hS3_g/VmbfhGZAnyI/AAAAAAAAApI/I6gK50lX78s/s1600/20151121_184600.jpg)
+[![](a2403005-3790-4284-ae95-c5f7aad0cc06.jpg)](635fa123-1592-4d0f-98d9-6af8018c50e3.jpg)
 
   
 
@@ -50,7 +50,7 @@ Le 21 novembre 2015 au centre de formation ADP91 à Lisses (91)
 
   
 
-[![](http://4.bp.blogspot.com/-P5Q-OAHnAiA/VmbgclL5s2I/AAAAAAAAApQ/D8l8AvNEghM/s400/20151121_171042.jpg)](http://4.bp.blogspot.com/-P5Q-OAHnAiA/VmbgclL5s2I/AAAAAAAAApQ/D8l8AvNEghM/s1600/20151121_171042.jpg)
+[![](3e970595-6039-418c-b4ed-430b7b06a831.jpg)](47861a77-5072-403a-8d3b-425689d0679f.jpg)
   
   
   

@@ -3,13 +3,13 @@ layout: post
 title: Mont Poupet (Jura) Mai 2014
 date: '2014-05-23T08:43:00.001-07:00'
 author: robert le valentinois
-thumbnail: http://1.bp.blogspot.com/-fdRtWmLfs7E/U4B-ILptIgI/AAAAAAAAAMU/y-EVGtA1h4s/s72-c/salins.jpg
+thumbnail: 489b70ad-af0b-4cfc-b774-9b0e08d9592f.jpg
 ---
 Sortie Interclubs dans&nbsp; le Jura, 16/17/18 Mai 2014. (article: R.A.)  
   
 Notre Gîte de l'association Bisontine " Les Amis de la Nature" : au Hameau de Baud, à Salins-les-Bains.
 
-[![](http://1.bp.blogspot.com/-fdRtWmLfs7E/U4B-ILptIgI/AAAAAAAAAMU/y-EVGtA1h4s/s1600/salins.jpg)](http://1.bp.blogspot.com/-fdRtWmLfs7E/U4B-ILptIgI/AAAAAAAAAMU/y-EVGtA1h4s/s1600/salins.jpg)
+[![](26f48429-aa47-49d4-953a-411f212b64fe.jpg)](26f48429-aa47-49d4-953a-411f212b64fe.jpg)
 
   
 
@@ -22,10 +22,10 @@ Samedi, point Météo, peu encourageant car localement le vent est fort (15 à 3
 A notre arrivée, nous sommes briefés par les locaux, respect de l'environnement, des champs, wagas possibles, enfin de quoi jouer sur place. François, Nadir et Robert déploient leurs voiles, çà décolle bien, mais rapidement on replie pour retourner sur Besançon, assez proche.  
 Pas de chance, à Besançon, le vent est bien présent..... Au retour, nous passons voir les atterros, pour le programme de dimanche  
 
-[![](http://1.bp.blogspot.com/-qfpc-zlkhKw/U39p3ext-MI/AAAAAAAAAMA/IDr_zjphGeQ/s1600/20140517_Autrey-l%C3%A8s-Cerres.jpg)](http://1.bp.blogspot.com/-qfpc-zlkhKw/U39p3ext-MI/AAAAAAAAAMA/IDr_zjphGeQ/s1600/20140517_Autrey-l%C3%A8s-Cerres.jpg)
+[![](ce78c3bb-a8e7-4a4e-8ee5-06e875ad5e4e.jpg)](ce78c3bb-a8e7-4a4e-8ee5-06e875ad5e4e.jpg)
 
 [  
-](http://2.bp.blogspot.com/--Vg0bksCDQc/U39g9M_sQaI/AAAAAAAAAKw/vN8hM_5DrZA/s1600/20140517_Autrey-l%C3%A8s-Cerres.jpg)
+](333ad057-5f82-4340-a4fb-ab1bd1341074.jpg)
 &nbsp;Photo prise par Nadir, depuis son point d'observation en lisière du bois.&nbsp; Pente école Autrey-lès-Cerres  
   
   
@@ -44,14 +44,14 @@ L'atterro sera un champ de foin prêt à être ramassé,
 [![](http://3.bp.blogspot.com/-CVbAk9jAqAI/U39pJxS5BKI/AAAAAAAAALw/1diGF42KvVc/s1600/20140518_atterro+poupet.jpg)](http://3.bp.blogspot.com/-CVbAk9jAqAI/U39pJxS5BKI/AAAAAAAAALw/1diGF42KvVc/s1600/20140518_atterro+poupet.jpg)
 
 [  
-](http://1.bp.blogspot.com/-hGRMa5rFUlY/U39mUBeNekI/AAAAAAAAALI/M5e7bJZYF58/s1600/20140518_124244.jpg)
+](d4ccd0c6-f742-4d27-a397-a8b7a7fcce4e.jpg)
 &nbsp;L'herbe sèche tire au jaune, se fondant sur la couleur de la voile, attention aux clefs...hum!  
   
 
 [![](http://1.bp.blogspot.com/-1qXrOTZ8SQU/U39o-R88rZI/AAAAAAAAALo/A4CH3bn4XR0/s1600/20140518_en+attendant+navette+Poupet.jpg)](http://1.bp.blogspot.com/-1qXrOTZ8SQU/U39o-R88rZI/AAAAAAAAALo/A4CH3bn4XR0/s1600/20140518_en+attendant+navette+Poupet.jpg)
 
 [  
-](http://2.bp.blogspot.com/-mJVpYSZLThw/U39nNY2XWcI/AAAAAAAAALQ/r_l-I9Gg394/s1600/20140518_132005.jpg)
+](2a8e66ae-a4fc-40e5-b62b-1f0443383454.jpg)
 En attendant la navette: JeanMarc, Karim, R., Didier, Erwan.&nbsp; et Nadir à la photo  
   
 Bon! si on mettait le groupe:  

@@ -3,7 +3,7 @@ layout: post
 title: Orcieres 2019
 date: '2019-07-11T03:19:00.002-07:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-nQzQoSo3nhg/XScMiDvHBeI/AAAAAAAADQI/tY46OmbaQdc1cd1BqMBofbspDZcLNghmACLcBGAs/s72-c/groupe2_demenciel2019.jpg
+thumbnail: a02b1ecb-0256-4993-a9af-9305c7b29ec3.jpg
 ---
   
 
@@ -16,7 +16,7 @@ thumbnail: https://1.bp.blogspot.com/-nQzQoSo3nhg/XScMiDvHBeI/AAAAAAAADQI/tY46Om
 Il était une fois cinq pioupious parisiens qui arrivèrent à Orcières sous la pluie. Par un jour présumé de beau temps, ils rencontrèrent Michel et Laurent, deux moniteurs fort sympathiques. Les mains moites, le cœur qui palpite, ils montèrent au décollage. Une fois le vide face à eux, un débrief s’impose et un plan de vol est alors établi.  
   
 
-[![](https://1.bp.blogspot.com/-nQzQoSo3nhg/XScMiDvHBeI/AAAAAAAADQI/tY46OmbaQdc1cd1BqMBofbspDZcLNghmACLcBGAs/s640/groupe2_demenciel2019.jpg)](https://1.bp.blogspot.com/-nQzQoSo3nhg/XScMiDvHBeI/AAAAAAAADQI/tY46OmbaQdc1cd1BqMBofbspDZcLNghmACLcBGAs/s1600/groupe2_demenciel2019.jpg)
+[![](6ed9d633-641e-47ff-bed4-ae4fa40198cd.jpg)](52795efd-6dc0-4c1e-b6a3-ec9f6f0a15d4.jpg)
   
 &nbsp;Le stress commence à s’installer chez les pioupious, mais rien ne les arrête, ils se préparent&nbsp;: voile étalée, parachute vérifié, sellette attachée, casque clipsé, commandes empoignées, radio allumée, ils sont prêts à décoller. Laurent au déco, Michel à l’attero, les pioupious sont alors encadrés pour bien voler.
 
@@ -55,7 +55,7 @@ Les pioupious remercient chaleureusement toutes les personnes ayant contribué �
 La team pioupious 2019 était composée de&nbsp;Laure, Aure, Amina, David et Ilès. Ils seront de retour dès 2020&nbsp;!  
   
 
-[![](https://1.bp.blogspot.com/-6ZXtKdL5aQY/XStAprXS0OI/AAAAAAAADQs/q60O0CccAFw9M1m3MW9yC2NUo1xdRSDDgCLcBGAs/s1600/grp_demenciel2019.jpg)](https://1.bp.blogspot.com/-6ZXtKdL5aQY/XStAprXS0OI/AAAAAAAADQs/q60O0CccAFw9M1m3MW9yC2NUo1xdRSDDgCLcBGAs/s1600/grp_demenciel2019.jpg)
+[![](69319395-95c8-4699-8860-f2e0e8d1be43.jpg)](69319395-95c8-4699-8860-f2e0e8d1be43.jpg)
 
   
 

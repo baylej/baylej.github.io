@@ -3,7 +3,7 @@ layout: post
 title: bouge ta ville avec les collégiens de Villebon sur Yvette
 date: '2014-12-10T06:41:00.004-08:00'
 author: robert le valentinois
-thumbnail: http://3.bp.blogspot.com/-sQL8xhlOmfk/VIhYmkIrrkI/AAAAAAAAASo/2MsaOEgHjEc/s72-c/BtVille%2B2014%2Bvillebon.jpg
+thumbnail: 701216e9-e57e-44c3-bf3b-1067f656af05.jpg
 ---
 #### Opération «&nbsp;Bouge ta ville&nbsp;» **&nbsp; &nbsp; oct 2014&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;**   
 
@@ -17,7 +17,7 @@ thumbnail: http://3.bp.blogspot.com/-sQL8xhlOmfk/VIhYmkIrrkI/AAAAAAAAASo/2MsaOEg
 
  Nous nous sommes retrouvés le 31 octobre à côté du village de Tousson (77).
 
-[![](http://3.bp.blogspot.com/-sQL8xhlOmfk/VIhYmkIrrkI/AAAAAAAAASo/2MsaOEgHjEc/s1600/BtVille%2B2014%2Bvillebon.jpg)](http://3.bp.blogspot.com/-sQL8xhlOmfk/VIhYmkIrrkI/AAAAAAAAASo/2MsaOEgHjEc/s1600/BtVille%2B2014%2Bvillebon.jpg)
+[![](a71d3cf1-ee10-4c4d-bf0c-7cbd1ae285ea.jpg)](a71d3cf1-ee10-4c4d-bf0c-7cbd1ae285ea.jpg)
 
   
 
@@ -26,13 +26,13 @@ thumbnail: http://3.bp.blogspot.com/-sQL8xhlOmfk/VIhYmkIrrkI/AAAAAAAAASo/2MsaOEg
  Chaque jeune a pu faire deux grands vols et s’exercer au maniement d’une mini voile de parapente.
 
 [  
-](http://3.bp.blogspot.com/-WamFBNUkbsk/VIhYwZEEEFI/AAAAAAAAAS4/yZTImrRZVIw/s1600/Bt%2BVille%2B2014%2B2.jpg)
+](0550f06c-e62a-44ae-a902-20c83dba33de.jpg)
 
-[![](http://3.bp.blogspot.com/-OxznZd96c5o/VIhYsLGCJdI/AAAAAAAAASw/YbC_3Idq5IY/s1600/BTville2014%2B1.jpg)](http://3.bp.blogspot.com/-OxznZd96c5o/VIhYsLGCJdI/AAAAAAAAASw/YbC_3Idq5IY/s1600/BTville2014%2B1.jpg)
+[![](b8c8827d-940d-4bad-aa72-f0cc00a794dc.jpg)](b8c8827d-940d-4bad-aa72-f0cc00a794dc.jpg)
 
   
 
-[![](http://3.bp.blogspot.com/-WamFBNUkbsk/VIhYwZEEEFI/AAAAAAAAAS4/yZTImrRZVIw/s1600/Bt%2BVille%2B2014%2B2.jpg)](http://3.bp.blogspot.com/-WamFBNUkbsk/VIhYwZEEEFI/AAAAAAAAAS4/yZTImrRZVIw/s1600/Bt%2BVille%2B2014%2B2.jpg)
+[![](0550f06c-e62a-44ae-a902-20c83dba33de.jpg)](0550f06c-e62a-44ae-a902-20c83dba33de.jpg)
   
 
 par Françoise Lerique **&nbsp; (Déc 2014)**

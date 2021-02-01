@@ -3,7 +3,7 @@ layout: post
 title: Malay le grand nettoyage 2019
 date: '2019-01-27T09:37:00.001-08:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-Mf8AwyqqMak/XE3r1BYyIvI/AAAAAAAAC3o/ERa6YkRLk2QjBkiYTR1-ZJ108srHRSnwACLcBGAs/s72-c/IMG_20190126_135507%2B%25281%2529.jpg
+thumbnail: b9364814-c35e-4ca7-b9ff-667e01ddea96.jpg
 ---
  Compte rendu nettoyage du site de Malay le grand
 
@@ -32,7 +32,7 @@ thumbnail: https://1.bp.blogspot.com/-Mf8AwyqqMak/XE3r1BYyIvI/AAAAAAAAC3o/ERa6Yk
  Hugues Mauras, président du club Globe Trot'air .
   
 
-[![](https://1.bp.blogspot.com/-Mf8AwyqqMak/XE3r1BYyIvI/AAAAAAAAC3o/ERa6YkRLk2QjBkiYTR1-ZJ108srHRSnwACLcBGAs/s640/IMG_20190126_135507%2B%25281%2529.jpg)](https://1.bp.blogspot.com/-Mf8AwyqqMak/XE3r1BYyIvI/AAAAAAAAC3o/ERa6YkRLk2QjBkiYTR1-ZJ108srHRSnwACLcBGAs/s1600/IMG_20190126_135507%2B%25281%2529.jpg)
+[![](2b1d36ad-ed31-4df9-941a-81bec8d9b03a.jpg)](7019fecb-807d-43de-9bee-91c233aa067f.jpg)
   
 
-[![](https://4.bp.blogspot.com/-ehl5ycsmWTo/XE3rs-svhNI/AAAAAAAAC3k/FRY2Sc06BPQ388iSiNr8_l4WBK-CppliACLcBGAs/s640/IMG_20190126_1258521.jpg)](https://4.bp.blogspot.com/-ehl5ycsmWTo/XE3rs-svhNI/AAAAAAAAC3k/FRY2Sc06BPQ388iSiNr8_l4WBK-CppliACLcBGAs/s1600/IMG_20190126_1258521.jpg)
+[![](e66726da-25bb-4066-ac10-01b41618d9bd.jpg)](9b18fb0c-9ef4-420b-bd87-ea579c27e73b.jpg)

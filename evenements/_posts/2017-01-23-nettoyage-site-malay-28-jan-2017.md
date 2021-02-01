@@ -41,11 +41,11 @@ thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEau
 
 ## **&nbsp;** Sous un ciel brumeux , 15 parapentistes se sont transformés en jardinier ce Samedi 27 Janvier . Mais pendant 2h30 je peux vous dire que les thermiques étaient présents sur les pentes gràces aux moteurs de tondeuses et débroussailleuses sans compter les paires de bras qui se sont activées .
 
-[![](https://4.bp.blogspot.com/-o7Tx-azZGZY/WnGCzkYKocI/AAAAAAAABLg/_gFJHnGQvOMwaKJ7U7p0iDeQR9byd-JTgCLcBGAs/s640/20180127_malay1.jpg)](https://4.bp.blogspot.com/-o7Tx-azZGZY/WnGCzkYKocI/AAAAAAAABLg/_gFJHnGQvOMwaKJ7U7p0iDeQR9byd-JTgCLcBGAs/s1600/20180127_malay1.jpg)
+[![](5fe28ab7-c00d-4956-b04e-e6f3c7142490.jpg)](356338d8-6b35-43be-a2c9-dd7b545c08a3.jpg)
 
 ## Pour clore cette journée,&nbsp; un petit buffet bien apprécié de tous ! Merci à Christophe L, Patrice O, Frédéric , Luis D, Alain B, Anatole, Martin, Adrien B, Jonathan, Pierre, Adrien, Joel, Alain P, Régis et Hugues .
 
-[![](https://4.bp.blogspot.com/-hT7W4WkU2Rw/WnGC13is3sI/AAAAAAAABLk/do-2y4VdtwIK3oRCNcdiupR8u9L9uIcbwCEwYBhgL/s640/20180127_malay2.jpg)](https://4.bp.blogspot.com/-hT7W4WkU2Rw/WnGC13is3sI/AAAAAAAABLk/do-2y4VdtwIK3oRCNcdiupR8u9L9uIcbwCEwYBhgL/s1600/20180127_malay2.jpg)
+[![](11f13298-ced6-4a7d-b06d-159289ec1b60.jpg)](e7433f4a-3cb4-4fc6-8aef-ae10961db70d.jpg)
 
 ## &nbsp;
 
@@ -59,7 +59,7 @@ thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEau
 
 #### le Samedi 28 Janvier 2017&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Hugues Mauras
 
-[![](https://3.bp.blogspot.com/-Ry2SaD4EtJM/WIXvsgU3i4I/AAAAAAAAA3s/BUYIYugc300_A2hF5dioEJUYuYXb8pwGwCLcB/s640/malay%2B2017.jpg)](https://3.bp.blogspot.com/-Ry2SaD4EtJM/WIXvsgU3i4I/AAAAAAAAA3s/BUYIYugc300_A2hF5dioEJUYuYXb8pwGwCLcB/s1600/malay%2B2017.jpg)
+[![](72e7be41-50fd-4b2a-8f52-b528f678a998.jpg)](fe98c55a-2a15-42e0-8897-5107d2f26473.jpg)
 
 
  Nous nous sommes retrouvé à 10 parapentistes pour nettoyer le site de Malay le Grand et Eole notre mascotte. 
@@ -68,11 +68,11 @@ thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEau
 
  Merci aux présents&nbsp;: Alain B, Jonathan B, Alain P, Robert A, Jacky P, Patrice O, Joel V, Pierre L, Christophe L, 
 
-[![](https://2.bp.blogspot.com/-6tPu3Ml-RAQ/WI3IpBIBJ0I/AAAAAAAAA40/exEHPtGImBU8SItyipq1HjhlltOZAXkyACLcB/s640/20170128_Malay%2B2.jpg)](https://2.bp.blogspot.com/-6tPu3Ml-RAQ/WI3IpBIBJ0I/AAAAAAAAA40/exEHPtGImBU8SItyipq1HjhlltOZAXkyACLcB/s1600/20170128_Malay%2B2.jpg)
+[![](a47c5942-3dfc-4867-95d2-c12750f5ce22.jpg)](31fc077c-fad0-490d-b410-7281fd23802c.jpg)
 
-[![](https://2.bp.blogspot.com/-fS7AM4rUS5Q/WI3JK1a4ZnI/AAAAAAAAA48/f67P7-xtoiAZH8iWAu4uganKl5HvF5waQCLcB/s640/20170128_Malay%2B3.jpg)](https://2.bp.blogspot.com/-fS7AM4rUS5Q/WI3JK1a4ZnI/AAAAAAAAA48/f67P7-xtoiAZH8iWAu4uganKl5HvF5waQCLcB/s1600/20170128_Malay%2B3.jpg)
+[![](11d79f7d-6bb3-4d87-8ae9-933db1d99262.jpg)](fa376fca-6b2c-4742-8973-0f23a3b45b2b.jpg)
 
-[![](https://3.bp.blogspot.com/-24n-dw1xECk/WI3Irl_kiyI/AAAAAAAAA5A/Q4Mg0MRy1RMMmM5VDsYqzQ7SQ0hyL12cACEw/s640/20170128_Malay%2B4.jpg)](https://3.bp.blogspot.com/-24n-dw1xECk/WI3Irl_kiyI/AAAAAAAAA5A/Q4Mg0MRy1RMMmM5VDsYqzQ7SQ0hyL12cACEw/s1600/20170128_Malay%2B4.jpg)
+[![](8680ec09-ae16-43ba-bb22-d4e95e60b19e.jpg)](fcd59898-eaf6-4018-bc75-24d5c2e33a1b.jpg)
 
  Hugues Mauras 
 
@@ -85,7 +85,7 @@ Ce fut une bonne séance très productive, notamment pour dégager les innombrab
 Bye
 Martin
 
-[![](https://1.bp.blogspot.com/-p5cUmieFzRo/WIYC_f93R7I/AAAAAAAAA4c/dZxfINNmj4g00fN0reeDqj6q04T_0RQhACLcB/s640/malay%2B2016%2B1.jpg)](https://1.bp.blogspot.com/-p5cUmieFzRo/WIYC_f93R7I/AAAAAAAAA4c/dZxfINNmj4g00fN0reeDqj6q04T_0RQhACLcB/s1600/malay%2B2016%2B1.jpg)
+[![](b7728ce0-2426-44f3-8f66-1f1e4121549b.jpg)](93e6aa6a-c173-4664-be2e-68ed35a8d491.jpg)
 
 * * *
 
@@ -93,12 +93,12 @@ Martin
 
 Arrivé entre 9h30 pour les plus matinaux et 10h30 pour les adeptes de grasse matinée , nous étions rapidement en action pour débroussailler la nouvelle extension de la zone d'atterrissage et la pente sous l'aire de décollage . D'autres s'affairaient pour améliorer le passage des chemins d'accès au site . Un banc a été confectionné pour patienter lors de nos prochaines visites .&nbsp;
 
-[![](https://3.bp.blogspot.com/-a5XDfKkHp60/WIX8qge5HaI/AAAAAAAAA38/EHIG0bR-6UE_6E9JZ3CZwDaCTcmBoZXbQCLcB/s640/malay%2B%2B2015%2B1.jpg)](https://3.bp.blogspot.com/-a5XDfKkHp60/WIX8qge5HaI/AAAAAAAAA38/EHIG0bR-6UE_6E9JZ3CZwDaCTcmBoZXbQCLcB/s1600/malay%2B%2B2015%2B1.jpg)
+[![](b4473649-4388-41f9-ab05-5bf45fcdfbaa.jpg)](81c1aefc-8eb2-4a81-9992-3e1b31fe7370.jpg)
 
 
-[![](https://4.bp.blogspot.com/-lgaAMk5bWkU/WIX9Ty5OoaI/AAAAAAAAA4A/wPsqiyWPfiQ2Z3HOSrfcX9CfDu2_MHK8wCLcB/s640/malay%2B2015%2B2.jpg)](https://4.bp.blogspot.com/-lgaAMk5bWkU/WIX9Ty5OoaI/AAAAAAAAA4A/wPsqiyWPfiQ2Z3HOSrfcX9CfDu2_MHK8wCLcB/s1600/malay%2B2015%2B2.jpg)
+[![](e64ae221-04cf-42b1-9fc2-35f65a957fa2.jpg)](6f72584e-30ac-4d3c-9e54-8020261335f1.jpg)
 
-[![](https://4.bp.blogspot.com/-DVQHEOdW7D0/WIX9ar_898I/AAAAAAAAA4E/futtusdXxwkSpsG-jnDwoVG_ewh0wyBNwCLcB/s640/malay%2B2015%2B3.jpg)](https://4.bp.blogspot.com/-DVQHEOdW7D0/WIX9ar_898I/AAAAAAAAA4E/futtusdXxwkSpsG-jnDwoVG_ewh0wyBNwCLcB/s1600/malay%2B2015%2B3.jpg)
+[![](1c9c0e85-7cce-4eef-a2ec-a913da83d2c6.jpg)](22fcfb6b-f383-4fa7-ba48-0f917452d8cc.jpg)
 
 l'autre équipe dégage l'atterrissage et zone de pliage
 

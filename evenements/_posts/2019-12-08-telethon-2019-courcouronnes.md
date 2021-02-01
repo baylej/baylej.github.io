@@ -3,7 +3,7 @@ layout: post
 title: Téléthon 2019 à Evry-Courcouronnes
 date: '2019-12-08T09:39:00.003-08:00'
 author: robert le valentinois
-thumbnail: https://1.bp.blogspot.com/-2j_okxYMMi0/Xe0y9LswlnI/AAAAAAAADUY/qHzGyuUA8qcNVcyn9kFRzN8OKjgJnU3_wCEwYBhgL/s72-c/20191207_103919.jpg
+thumbnail: 1240b2a8-b1ce-465e-bc5a-230786e0dd7e.jpg
 ---
   
 
@@ -17,12 +17,12 @@ thumbnail: https://1.bp.blogspot.com/-2j_okxYMMi0/Xe0y9LswlnI/AAAAAAAADUY/qHzGyu
 
   
 
-[![](https://1.bp.blogspot.com/-2j_okxYMMi0/Xe0y9LswlnI/AAAAAAAADUY/qHzGyuUA8qcNVcyn9kFRzN8OKjgJnU3_wCEwYBhgL/s640/20191207_103919.jpg)](https://1.bp.blogspot.com/-2j_okxYMMi0/Xe0y9LswlnI/AAAAAAAADUY/qHzGyuUA8qcNVcyn9kFRzN8OKjgJnU3_wCEwYBhgL/s1600/20191207_103919.jpg)Néanmoins les prévisions météorologiques nous laissaient optimistes.  
+[![](88a48928-b089-4424-9be2-0d74f0df6feb.jpg)](91ca8111-1357-4b85-8e09-db4403553e0f.jpg)Néanmoins les prévisions météorologiques nous laissaient optimistes.  
  Le ciel s’éclaircissait au fur et à mesure , à 13h00 nous avions un ciel bien dégagé, un vent calme orienté WSW,  
   
   
 
-[![](https://1.bp.blogspot.com/-AQbLlnvx3TI/Xe0zN7S-ktI/AAAAAAAADUg/LWh0wSEV1nAlMcTT8JLGmMuU4KxfoCNFQCEwYBhgL/s640/20191207_telethon3.jpg)](https://1.bp.blogspot.com/-AQbLlnvx3TI/Xe0zN7S-ktI/AAAAAAAADUg/LWh0wSEV1nAlMcTT8JLGmMuU4KxfoCNFQCEwYBhgL/s1600/20191207_telethon3.jpg)
+[![](dad2c3ac-3507-46a9-8d4a-113f932034c6.jpg)](842df3fd-50f1-448b-bdd1-7c888dff917e.jpg)
   
 
  &nbsp;et Luis lança les hostilités à 11h00 par un premier vol\_distance de 30m .  
@@ -34,7 +34,7 @@ thumbnail: https://1.bp.blogspot.com/-2j_okxYMMi0/Xe0y9LswlnI/AAAAAAAADUY/qHzGyu
   
 
   
-[![](https://1.bp.blogspot.com/-8asOrzJ-XlM/Xe04SzmpcaI/AAAAAAAADUo/Xax4zeqKE1IpTIBf1C0Xu4r2BjZ4312qgCEwYBhgL/s640/MLB%2B07-12-2019%2B16%2B17%2B26.jpg)](https://1.bp.blogspot.com/-8asOrzJ-XlM/Xe04SzmpcaI/AAAAAAAADUo/Xax4zeqKE1IpTIBf1C0Xu4r2BjZ4312qgCEwYBhgL/s1600/MLB%2B07-12-2019%2B16%2B17%2B26.jpg)
+[![](1cbd166f-27ff-429f-af52-02827bef9044.jpg)](b4c2d04b-dfda-44a5-899b-7b8e2f0ff872.jpg)
   
 
  Le CDVL91 et le club Globe Trot'air remercient les bénévoles qui ont œuvré pour cette belle journée&nbsp;: Alain B. , Alain R. , Christian, Jonathan, Laurent, Luis, Michel, Pascal, Patrice et Marie Laure notre photographe . Les participants qui ont pris plaisir à réaliser collectivement un record de distance .

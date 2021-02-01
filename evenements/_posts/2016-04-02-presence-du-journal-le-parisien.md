@@ -3,7 +3,7 @@ layout: post
 title: présence du Journal " Le Parisien " à Courcour' vol 2016
 date: '2016-04-02T04:57:00.001-07:00'
 author: robert le valentinois
-thumbnail: https://3.bp.blogspot.com/-ceDp-K-edTs/Vv-zLsIKkVI/AAAAAAAAAsI/S9aA7WxZ1YoogLn4YVKltb5NVUHlF423A/s72-c/le%2BParisien%2B2016.jpg
+thumbnail: d0dd829d-25bd-49e4-bd96-3edf978f3726.jpg
 ---
  ![](leparisien.png)
 
@@ -17,7 +17,7 @@ Florian Loisy | 19 Mars 2016, 18h36 | MAJ : 19 Mars 2016, 18h36
 
   
 
-[![](https://3.bp.blogspot.com/-ceDp-K-edTs/Vv-zLsIKkVI/AAAAAAAAAsI/S9aA7WxZ1YoogLn4YVKltb5NVUHlF423A/s640/le%2BParisien%2B2016.jpg)](https://3.bp.blogspot.com/-ceDp-K-edTs/Vv-zLsIKkVI/AAAAAAAAAsI/S9aA7WxZ1YoogLn4YVKltb5NVUHlF423A/s1600/le%2BParisien%2B2016.jpg)
+[![](ba84dcd7-7cfc-4c0b-8d13-327a838df03c.jpg)](b499c68e-7791-461a-90d2-c409960c41da.jpg)
 
   
 

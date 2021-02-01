@@ -3,7 +3,7 @@ layout: post
 title: Sorties Accompagnées en 2017
 date: '2018-02-03T08:01:00.001-08:00'
 author: robert le valentinois
-thumbnail: https://2.bp.blogspot.com/-6dZJpdv85O4/WnXbr8aWh4I/AAAAAAAABW8/mYa0UCHgeeAxvzrP_6jtOVUPEoweEYJAACLcBGAs/s72-c/IMG_4078%2B%2528640x480%2529.jpg
+thumbnail: 6421851b-fb67-4dbe-a3ef-d71a4c96973c.jpg
 ---
  **Sortie A treuil à Méréville le 21avril 2018,**
   
@@ -96,11 +96,11 @@ Sortie St Martin 20 Janvier&nbsp; 2018,
 
   
 
-[![](https://2.bp.blogspot.com/-6dZJpdv85O4/WnXbr8aWh4I/AAAAAAAABW8/mYa0UCHgeeAxvzrP_6jtOVUPEoweEYJAACLcBGAs/s1600/IMG_4078%2B%2528640x480%2529.jpg)](https://2.bp.blogspot.com/-6dZJpdv85O4/WnXbr8aWh4I/AAAAAAAABW8/mYa0UCHgeeAxvzrP_6jtOVUPEoweEYJAACLcBGAs/s1600/IMG_4078%2B%2528640x480%2529.jpg)
+[![](3cd606be-2cbb-4c1a-9b9d-31536af66d1c.jpg)](3cd606be-2cbb-4c1a-9b9d-31536af66d1c.jpg)
 
  Christian a changé de blouson car il fait froid maintenant
 
-[![](https://2.bp.blogspot.com/-UYFqZipvpaQ/WnXbzff5K5I/AAAAAAAABXA/yW_CrBl6z4MICXjXvrPRxUl85rYVeMOVgCEwYBhgL/s1600/Photo0592%2B%2528640x480%2529.jpg)](https://2.bp.blogspot.com/-UYFqZipvpaQ/WnXbzff5K5I/AAAAAAAABXA/yW_CrBl6z4MICXjXvrPRxUl85rYVeMOVgCEwYBhgL/s1600/Photo0592%2B%2528640x480%2529.jpg)
+[![](a1a7075d-ac9c-47cf-b11d-9ca5b802e0b7.jpg)](a1a7075d-ac9c-47cf-b11d-9ca5b802e0b7.jpg)
   
 
   

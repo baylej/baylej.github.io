@@ -3,9 +3,9 @@ layout: post
 title: " sortie Cantal  16-18 septembre 2016"
 date: '2016-09-21T00:52:00.001-07:00'
 author: robert le valentinois
-thumbnail: https://4.bp.blogspot.com/-VU1gUTgoHmc/V-Izjo-5NoI/AAAAAAAAAuU/Y-j9HNuqIXUiirH-cwnA-2pKcimFVYwfwCLcB/s72-c/bandeau%2BCDVL91%2B2016.jpg
+thumbnail: 13d90abd-0af8-4eea-9f6b-335c0e247105.jpg
 ---
-[![](https://4.bp.blogspot.com/-VU1gUTgoHmc/V-Izjo-5NoI/AAAAAAAAAuU/Y-j9HNuqIXUiirH-cwnA-2pKcimFVYwfwCLcB/s640/bandeau%2BCDVL91%2B2016.jpg)](https://4.bp.blogspot.com/-VU1gUTgoHmc/V-Izjo-5NoI/AAAAAAAAAuU/Y-j9HNuqIXUiirH-cwnA-2pKcimFVYwfwCLcB/s1600/bandeau%2BCDVL91%2B2016.jpg)
+[![](2c6e0ebf-f19c-4eb0-95ad-bcc6633609de.jpg)](1ea933a2-bc22-4e82-9a8b-8431488f03ce.jpg)
   
 
 **Voyage Interclubs au pays du Puy Mary**
@@ -26,7 +26,7 @@ Les premiers arrivés au gîte organisent l’accueil des suivants, jusqu'à une
 
 **Samedi 17 septembre**
 
-[![](https://4.bp.blogspot.com/-wajG_xg9Y3Y/V-I03ukHAgI/AAAAAAAAAuY/Lz5WGgHe7mcN8hycZQPtbup9C3Gzp23jQCLcB/s400/Image2.jpg)](https://4.bp.blogspot.com/-wajG_xg9Y3Y/V-I03ukHAgI/AAAAAAAAAuY/Lz5WGgHe7mcN8hycZQPtbup9C3Gzp23jQCLcB/s1600/Image2.jpg)
+[![](7c2c2290-39b2-47e4-8a07-9c250522b727.jpg)](b068fc20-80c1-4aed-b7b6-c8597afe3ad1.jpg)
 
 **&nbsp;** &nbsp;
 
@@ -36,7 +36,7 @@ Mais cela ne décourage pas six irréductibles du vol&nbsp;: Alain.R, Bruno, Rob
 
 Bizarrement, ils atterrissent tout près du resto du midi…
 
-[![](https://1.bp.blogspot.com/-hlgSuyBpC3E/V-I1ZWMjJ1I/AAAAAAAAAug/dG4uFazzyz0j_voytyssKda9E3cxfKAtwCLcB/s640/Image3.jpg)](https://1.bp.blogspot.com/-hlgSuyBpC3E/V-I1ZWMjJ1I/AAAAAAAAAug/dG4uFazzyz0j_voytyssKda9E3cxfKAtwCLcB/s1600/Image3.jpg)
+[![](3ab9672a-0f11-4cc3-8e88-149fcb071271.jpg)](b46ee5a3-f65d-4385-bb0c-c86805f56f76.jpg)
 
   
 
@@ -46,7 +46,7 @@ Bizarrement, ils atterrissent tout près du resto du midi…
 
   
 
-[![](https://4.bp.blogspot.com/-Yx4MA3bNSkU/V-K28_vaqKI/AAAAAAAAAv0/JySEZj6w4k0pKDi6A1kI8Cm7rYnpibGdACLcB/s640/Image1.jpg)](https://4.bp.blogspot.com/-Yx4MA3bNSkU/V-K28_vaqKI/AAAAAAAAAv0/JySEZj6w4k0pKDi6A1kI8Cm7rYnpibGdACLcB/s1600/Image1.jpg)
+[![](0b6b8c7d-f533-4523-9813-b841ee990a27.jpg)](1a675086-cd90-4a9a-8acf-73349bfb5d44.jpg)
 
   
 
@@ -62,20 +62,20 @@ L'après-midi nous aura ouvert un bref créneau, qui a profité à une palanqué
 
   
 
-[![](https://3.bp.blogspot.com/-DGkHYjNYT3U/V-I2VDIyWII/AAAAAAAAAuw/0PKiKYsWALg05D4pfqMyxgKUUqAnMff0gCLcB/s1600/Image5.jpg)](https://3.bp.blogspot.com/-DGkHYjNYT3U/V-I2VDIyWII/AAAAAAAAAuw/0PKiKYsWALg05D4pfqMyxgKUUqAnMff0gCLcB/s1600/Image5.jpg)
+[![](6c191b28-9bd6-4096-85ad-554941d4cb91.jpg)](6c191b28-9bd6-4096-85ad-554941d4cb91.jpg)
   
 
 &nbsp;Bruno prêt à partir après Robert
 
   
 
-[![](https://2.bp.blogspot.com/-J90ul1itEBg/V-I2zRApwBI/AAAAAAAAAu0/S1eFcQYcwIEkJcsiQXHNoUMLv-NYpfIawCLcB/s1600/Image6.jpg)](https://2.bp.blogspot.com/-J90ul1itEBg/V-I2zRApwBI/AAAAAAAAAu0/S1eFcQYcwIEkJcsiQXHNoUMLv-NYpfIawCLcB/s1600/Image6.jpg)
+[![](d8859932-2976-4234-ae9a-f6d939cb6bac.jpg)](d8859932-2976-4234-ae9a-f6d939cb6bac.jpg)
 
 Golden IV avec R@&nbsp;: la fenêtre va se fermer dans quelques minutes
 
   
 
-[![](https://2.bp.blogspot.com/-HQvP2y_uu_E/V-I3QMgkxNI/AAAAAAAAAu4/-S6CJNVL49s-JKOr4FTv5DIoUFBJG9ZoACLcB/s1600/Image7.jpg)](https://2.bp.blogspot.com/-HQvP2y_uu_E/V-I3QMgkxNI/AAAAAAAAAu4/-S6CJNVL49s-JKOr4FTv5DIoUFBJG9ZoACLcB/s1600/Image7.jpg)
+[![](52ec956c-283e-402f-b562-2e920a96529b.jpg)](52ec956c-283e-402f-b562-2e920a96529b.jpg)
 
 Faune locale en méditation à côté du déco
 
@@ -113,13 +113,13 @@ Sur le chemin du retour, après un pique-nique collectif, nous sommes allés dé
 
 Nous montons en procession à la chapelle de Brionne, le déco de Saurier, un vent à décorner les Aubracs nous ramène à plus d'ambition terrestre.&nbsp;&nbsp;
 
-[![](https://2.bp.blogspot.com/-oCASFbR9DsY/V-I4VT2MnCI/AAAAAAAAAvA/qA6haZ5yurEGi40DdN7OzXdLMcYgufhmgCLcB/s320/Image8.jpg)](https://2.bp.blogspot.com/-oCASFbR9DsY/V-I4VT2MnCI/AAAAAAAAAvA/qA6haZ5yurEGi40DdN7OzXdLMcYgufhmgCLcB/s1600/Image8.jpg)
+[![](6a6c1398-1acb-4521-a33a-e32f01a50529.jpg)](afc0a179-148f-436b-a5dc-b2a38f7a47a9.jpg)
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; le déco musclé de la chapelle de Brionne
 
   
 
-[![](https://3.bp.blogspot.com/-nwWp0VkmGhs/V-I5Ad9Zf4I/AAAAAAAAAvE/W23hY3gnM489YUGTKLV0llKWUMjy5uS4wCLcB/s640/Image9.jpg)](https://3.bp.blogspot.com/-nwWp0VkmGhs/V-I5Ad9Zf4I/AAAAAAAAAvE/W23hY3gnM489YUGTKLV0llKWUMjy5uS4wCLcB/s1600/Image9.jpg)
+[![](20161748-f27a-442a-905f-e3d79bebf2b7.jpg)](c9fd5a18-3bed-4d63-b86b-26c222afa32f.jpg)
   
   
 
@@ -127,7 +127,7 @@ Un peu de géologie près du déco nous a alors permis d’admirer des orgues ba
 
   
 
-[![](https://3.bp.blogspot.com/-Y171tjByiN0/V-I5aGhTlII/AAAAAAAAAvI/YFBHQIBdAKMLlqh8GaNDUdYTqUAZvKvwQCLcB/s640/Image10.jpg)](https://3.bp.blogspot.com/-Y171tjByiN0/V-I5aGhTlII/AAAAAAAAAvI/YFBHQIBdAKMLlqh8GaNDUdYTqUAZvKvwQCLcB/s1600/Image10.jpg)
+[![](b6f74d97-3540-4fa8-ad39-3e38fc52adc7.jpg)](98ccf142-0016-4dad-a7ec-6fce26ac166f.jpg)
 
   
 
@@ -140,7 +140,7 @@ Nous pousserons par Besse et Super Besse et grimpons au déco du Pic d’Ysson.
 
   
 
-[![](https://2.bp.blogspot.com/-1h54LK05TDw/V-I6crp0yJI/AAAAAAAAAvM/H77BcrAgZEMNHdUA4H4ixKeyvs-tCgllwCLcB/s400/Image11.jpg)](https://2.bp.blogspot.com/-1h54LK05TDw/V-I6crp0yJI/AAAAAAAAAvM/H77BcrAgZEMNHdUA4H4ixKeyvs-tCgllwCLcB/s1600/Image11.jpg)
+[![](a94684a9-dea6-4afd-8253-7ced627281e4.jpg)](ef2c7e49-7044-48cc-9fbd-bbf9a3a54169.jpg)
   
 
   
@@ -155,7 +155,7 @@ Chacun aura pu voir le potentiel de vol sur le Puy-Mary et la beauté du paysage
 
   
 
-[![](https://4.bp.blogspot.com/-m7BirxlpEkc/V-I7c1bzGjI/AAAAAAAAAvU/Do34eHplgyYkt9e6r5byyzy1hHccNnhxACLcB/s320/Image13.jpg)](https://4.bp.blogspot.com/-m7BirxlpEkc/V-I7c1bzGjI/AAAAAAAAAvU/Do34eHplgyYkt9e6r5byyzy1hHccNnhxACLcB/s1600/Image13.jpg)
+[![](549fdba3-17bc-4bb5-9181-ddc7b2bf0ae7.jpg)](1c71c8fe-8bc5-48a0-861c-1678b765dfc6.jpg)
   
 
 C’est certain, nous reviendrons&nbsp;!!!

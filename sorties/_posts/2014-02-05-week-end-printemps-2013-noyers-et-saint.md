@@ -9,9 +9,9 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
   </h2>
 </div>
 <div class="separator" style="clear: both; text-align: center;">
-  <a href="http://4.bp.blogspot.com/-626HkEpmpEU/VOutwcqdrwI/AAAAAAAAAcY/9ADqZxu5AU4/s1600/Image1.jpg" style=
+  <a href="d278b24f-3d2f-45fc-ad7a-2c0e7c2a5282.jpg" style=
   "margin-left: 1em; margin-right: 1em;"><img border="0" src=
-  "http://4.bp.blogspot.com/-626HkEpmpEU/VOutwcqdrwI/AAAAAAAAAcY/9ADqZxu5AU4/s1600/Image1.jpg" height="233" width=
+  "d278b24f-3d2f-45fc-ad7a-2c0e7c2a5282.jpg" height="233" width=
   "640"></a>
 </div>
 <div class="MsoNormal" style="text-align: justify;">
@@ -513,9 +513,9 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
     Départ matinal du <span style="mso-spacerun: yes;">&nbsp;</span>Gite pour une belle journée de vols
   </div>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://1.bp.blogspot.com/-4pKuoYTFyIU/VOupY0H1sjI/AAAAAAAAAbg/exZGip8wgEY/s1600/IMG_4423.JPG" style=
+    <a href="641f0463-9eaf-4ca5-ad4d-a45fc2968c22.jpg" style=
     "margin-left: 1em; margin-right: 1em;"><img border="0" src=
-    "http://1.bp.blogspot.com/-4pKuoYTFyIU/VOupY0H1sjI/AAAAAAAAAbg/exZGip8wgEY/s1600/IMG_4423.JPG" height="266" width=
+    "641f0463-9eaf-4ca5-ad4d-a45fc2968c22.jpg" height="266" width=
     "400"></a>
   </div>
   <div class="MsoNormal"></div>
@@ -535,15 +535,15 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
     <br>
   </div>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://2.bp.blogspot.com/-bzho7PFvFTw/VOupb0sTF0I/AAAAAAAAAb8/wQkys870Mkw/s1600/IMG_4465.JPG" style=
+    <a href="d9bc9dad-4b0f-41bb-9c28-4533cd1e40cc.jpg" style=
     "clear: right; float: right; margin-bottom: 1em; margin-left: 1em;"><img border="0" src=
-    "http://2.bp.blogspot.com/-bzho7PFvFTw/VOupb0sTF0I/AAAAAAAAAb8/wQkys870Mkw/s1600/IMG_4465.JPG" height="265" width=
+    "d9bc9dad-4b0f-41bb-9c28-4533cd1e40cc.jpg" height="265" width=
     "400"></a>
   </div>
   <div class="MsoNormal">
-    <a href="http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG" style=
+    <a href="5eeab637-ab0b-4c71-9a8c-863ced10d3ae.jpg" style=
     "clear: right; float: right; margin-bottom: 1em; margin-left: 1em;"><img border="0" src=
-    "http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG" height="420" width=
+    "5eeab637-ab0b-4c71-9a8c-863ced10d3ae.jpg" height="420" width=
     "640"></a>
   </div>
   <div class="MsoNormal">
@@ -608,13 +608,13 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
     <br>
   </div><br>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG" style=
+    <a href="5eeab637-ab0b-4c71-9a8c-863ced10d3ae.jpg" style=
     "clear: right; float: right; margin-bottom: 1em; margin-left: 1em;"><br></a>
   </div>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://4.bp.blogspot.com/-DhY7F13o6TA/VOupZRpXkaI/AAAAAAAAAbo/CHZT6du6cJc/s1600/IMG_4449.JPG" style=
+    <a href="98db6a9b-bfb6-4bdc-835e-11d342c5c974.jpg" style=
     "clear: left; float: left; margin-bottom: 1em; margin-right: 1em;"><img border="0" src=
-    "http://4.bp.blogspot.com/-DhY7F13o6TA/VOupZRpXkaI/AAAAAAAAAbo/CHZT6du6cJc/s1600/IMG_4449.JPG" height="213" width=
+    "98db6a9b-bfb6-4bdc-835e-11d342c5c974.jpg" height="213" width=
     "320"></a>
   </div>
   <div class="MsoNormal">
@@ -648,9 +648,9 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
     <br>
   </div>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://3.bp.blogspot.com/-NlcKI2jhgQY/VOupYNVlARI/AAAAAAAAAbY/HKK20pQWzW4/s1600/IMG_4440.JPG" style=
+    <a href="f41bb599-0eb0-4501-9d32-2a2363a2d93b.jpg" style=
     "margin-left: 1em; margin-right: 1em;"><img border="0" src=
-    "http://3.bp.blogspot.com/-NlcKI2jhgQY/VOupYNVlARI/AAAAAAAAAbY/HKK20pQWzW4/s1600/IMG_4440.JPG" height="425" width=
+    "f41bb599-0eb0-4501-9d32-2a2363a2d93b.jpg" height="425" width=
     "640"></a>
   </div>
   <div class="MsoNormal">
@@ -667,9 +667,9 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
     Le groupe au complet&nbsp;
   </div>
   <div class="separator" style="clear: both; text-align: center;">
-    <a href="http://2.bp.blogspot.com/-JPQIFNkrhOg/VOupcmDr4mI/AAAAAAAAAcM/eviq3muyusg/s1600/IMG_4485.JPG" style=
+    <a href="d1616428-a89c-4b55-9230-db344afeb5c3.jpg" style=
     "margin-left: 1em; margin-right: 1em;"><img border="0" src=
-    "http://2.bp.blogspot.com/-JPQIFNkrhOg/VOupcmDr4mI/AAAAAAAAAcM/eviq3muyusg/s1600/IMG_4485.JPG" height="426" width=
+    "d1616428-a89c-4b55-9230-db344afeb5c3.jpg" height="426" width=
     "640"></a>
   </div>
   <div class="MsoNormal">

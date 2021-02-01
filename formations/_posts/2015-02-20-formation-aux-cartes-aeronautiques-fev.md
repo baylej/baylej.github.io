@@ -26,17 +26,17 @@ thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dz
   
  Objectifs: savoir lire une carte aéronautique et tracer son cheminement en prenant en comptes les obligations de respects des espaces aériens et zones à status particuliers.  
 
-[![](http://3.bp.blogspot.com/-GbIn3ISpTYY/VNaUrIx5cPI/AAAAAAAAAUw/4JBuX8bCrjE/s1600/20150207_090843.jpg)](http://3.bp.blogspot.com/-GbIn3ISpTYY/VNaUrIx5cPI/AAAAAAAAAUw/4JBuX8bCrjE/s1600/20150207_090843.jpg)
+[![](e8acbad1-893c-433d-8e0e-dad0eb76c896.jpg)](e8acbad1-893c-433d-8e0e-dad0eb76c896.jpg)
   
   
  La plupart des auditeurs sera venu avec son matériel pc, smartphone GPS, pour mettre en application immédiate un parcours de leur choix.  
   
   
 
-[![](http://4.bp.blogspot.com/-zbGYXvUSS54/VNaUoz7MwAI/AAAAAAAAAUo/WmJMhib2KWI/s1600/20150207_090823.jpg)](http://4.bp.blogspot.com/-zbGYXvUSS54/VNaUoz7MwAI/AAAAAAAAAUo/WmJMhib2KWI/s1600/20150207_090823.jpg)
+[![](f61c19b8-cca1-411e-8c12-23cfa6c95fe0.jpg)](f61c19b8-cca1-411e-8c12-23cfa6c95fe0.jpg)
 &nbsp;Martin lors de sa présentation  
 
-[![](http://4.bp.blogspot.com/-QRWLPs303so/VN4m9Ljd9_I/AAAAAAAAAWY/jKHpBuoynQ0/s1600/IMG_20150207_090810.jpg)](http://4.bp.blogspot.com/-QRWLPs303so/VN4m9Ljd9_I/AAAAAAAAAWY/jKHpBuoynQ0/s1600/IMG_20150207_090810.jpg)
+[![](2fd6cc7c-c1be-408b-a3a0-46434466f016.jpg)](2fd6cc7c-c1be-408b-a3a0-46434466f016.jpg)
   
   
  Paul Moreau nous a présenté l'outil qu'il a développé pour FlyMaster.  

@@ -3,7 +3,7 @@ layout: post
 title: Rassemblement des jeunes Essonniens à Orcières-Merlette
 date: '2014-10-01T08:01:00.004-07:00'
 author: robert le valentinois
-thumbnail: http://3.bp.blogspot.com/-XaGfWjh7aL4/VCwUtV2Ml4I/AAAAAAAAANs/_aG9cjUM--Q/s72-c/P1210405.JPG
+thumbnail: b58a2d36-90d1-4467-8c6f-9e09a1bfc35e.jpg
 ---
 Article rédigé par Hugues Mauras, Professeur émérite d'EPS
 
@@ -11,9 +11,9 @@ Article rédigé par Hugues Mauras, Professeur émérite d'EPS
 
 **&nbsp;du 4 au 9 juillet 2014.**
 
-[![](http://3.bp.blogspot.com/-XaGfWjh7aL4/VCwUtV2Ml4I/AAAAAAAAANs/_aG9cjUM--Q/s1600/P1210405.JPG)](http://3.bp.blogspot.com/-XaGfWjh7aL4/VCwUtV2Ml4I/AAAAAAAAANs/_aG9cjUM--Q/s1600/P1210405.JPG)
+[![](fcb0e7d6-a6f7-4414-b13b-c75c71e8f89b.jpg)](fcb0e7d6-a6f7-4414-b13b-c75c71e8f89b.jpg)
 
-[](http://4.bp.blogspot.com/-t08p9WAfhNQ/VCwUHjCHsZI/AAAAAAAAANk/-HpghBUzSxQ/s1600/P1210432.jpg)
+[](c9336d05-cfe7-489b-9c14-30906b0d8fe9.jpg)
 
   
 
@@ -21,13 +21,13 @@ Article rédigé par Hugues Mauras, Professeur émérite d'EPS
 
  Parmi les jeunes, les plus expérimentés faisaient déjà de la compétition et nos 9 «&nbsp;parisiens&nbsp;» avaient fait leur premier grand vol un mois plus tôt&nbsp;!
 
-[![](http://4.bp.blogspot.com/-t08p9WAfhNQ/VCwUHjCHsZI/AAAAAAAAANk/-HpghBUzSxQ/s1600/P1210432.jpg)](http://4.bp.blogspot.com/-t08p9WAfhNQ/VCwUHjCHsZI/AAAAAAAAANk/-HpghBUzSxQ/s1600/P1210432.jpg)
+[![](c9336d05-cfe7-489b-9c14-30906b0d8fe9.jpg)](c9336d05-cfe7-489b-9c14-30906b0d8fe9.jpg)
 
  Le temps exécrable sur toute la France a permis malgré tout de voler tous les jours.&nbsp; Chaque pilote «&nbsp;débutant&nbsp;» était aidé par un pilote expérimenté.
 
  Le site d’Orcières a permis de faire des vols de 600 à 900mètres de dénivelé mais aussi des bonnes séances de pente-école et quand le temps ne permettait pas de voler, un peu de théorie était apporté par jeunes et moins jeunes.
 
-[![](http://3.bp.blogspot.com/-B9feo932Kts/VCwUykvB_0I/AAAAAAAAAN0/9N3fCOX5IdU/s1600/IMG_1259.JPG)](http://3.bp.blogspot.com/-B9feo932Kts/VCwUykvB_0I/AAAAAAAAAN0/9N3fCOX5IdU/s1600/IMG_1259.JPG)
+[![](426afdfd-54aa-4253-a0f9-6879e2cc29da.jpg)](426afdfd-54aa-4253-a0f9-6879e2cc29da.jpg)
 
   
 
@@ -64,7 +64,7 @@ Après plusieurs séances d'initiations au glonflage de parapente les mercredis 
 Les deux premières journées furent consacrées à la reprises de l'activité sur la pente école afin que Sami (moniteur), fasse connaissance de nos apprentis oisillons et que chacun retrouve les gestes justes, complétées par deux cours&nbsp; sur le plan de vol, l'approche d'un terrain et l'atterrissage.  
 Puis le deux jours suivants réalisation de grands vols . Le Mercredi 14/05 à Villiers sur mer chacun a pu réaliser 3 vols. Le lendemain, à Saint Marc d'Ouilly , 13 d'entre eux ont pu faire un vol supplémentaire. Le vent se renforçant, il fut plus raisonnable de s'arrêter.  
 
-[![](http://4.bp.blogspot.com/-NTHK_gE42dU/VCwWlmkeSBI/AAAAAAAAAN4/Hl5S02iQpww/s1600/Imagemai2014.jpg)](http://4.bp.blogspot.com/-NTHK_gE42dU/VCwWlmkeSBI/AAAAAAAAAN4/Hl5S02iQpww/s1600/Imagemai2014.jpg)
+[![](518f1e4a-1a95-477a-9136-10dd5368c4bf.jpg)](518f1e4a-1a95-477a-9136-10dd5368c4bf.jpg)
   
 
 ### Promotion Jeunesse

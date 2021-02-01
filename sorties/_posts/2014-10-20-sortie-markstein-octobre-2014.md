@@ -3,7 +3,7 @@ layout: post
 title: Sortie Markstein Octobre 2014
 date: '2014-10-20T10:14:00.000-07:00'
 author: robert le valentinois
-thumbnail: http://3.bp.blogspot.com/-SbovukIvYc0/VEUuwWP5t4I/AAAAAAAAAPU/mxzslLabSGE/s72-c/IMG_3981.JPG
+thumbnail: 43a1147b-d4bb-40fe-815f-387ad8972c0c.jpg
 ---
 ## **Sortie du 17 au 19 Octobre 2014:** &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; article&nbsp; R.A.
 Nous avions programmé Granville en Basse Normandie, la Météo en a décidé autrement.... direction le Markstein, plus précisément le Treh, dans les Vosges&nbsp; (Haut-Rhin).  
@@ -13,9 +13,9 @@ Pour des raisons de disponibilités internes, nous n'avons pas pu organiser la s
 Départ de la MJC-Villebon vendredi vers 19h et arrivée à minuit&nbsp;&nbsp; au gite:&nbsp; le centre Chrétien 'Le Torrent' à Storckenshon, commune lès-Fellering où se trouve l'atterro&nbsp; 'Aérotec'.  
 Nous avions tout l'étage du bâtiment "les sapins'...que l'on voit sur la photo  
 
-[![](http://3.bp.blogspot.com/-SbovukIvYc0/VEUuwWP5t4I/AAAAAAAAAPU/mxzslLabSGE/s1600/IMG_3981.JPG)&nbsp;](http://3.bp.blogspot.com/-SbovukIvYc0/VEUuwWP5t4I/AAAAAAAAAPU/mxzslLabSGE/s1600/IMG_3981.JPG)
+[![](b4335fcd-cc17-49b9-b5c1-ed59bb498dbd.jpg)&nbsp;](b4335fcd-cc17-49b9-b5c1-ed59bb498dbd.jpg)
 
-[![](http://3.bp.blogspot.com/-fsgU8PkNZ0A/VEUu41jz0xI/AAAAAAAAAPc/QG2bmnhtSYY/s1600/2014-10-18%2B09.05.23.jpg)](http://3.bp.blogspot.com/-fsgU8PkNZ0A/VEUu41jz0xI/AAAAAAAAAPc/QG2bmnhtSYY/s1600/2014-10-18%2B09.05.23.jpg)
+[![](48f1c714-6536-406e-ac51-7ceed703e293.jpg)](48f1c714-6536-406e-ac51-7ceed703e293.jpg)
   
 
  &nbsp;Gite en pleine nature, belle journée en perspective .
@@ -44,7 +44,7 @@ Nous avions tout l'étage du bâtiment "les sapins'...que l'on voit sur la photo
 
 <u>Journée de Samedi</u> :&nbsp; identification des atterros:&nbsp; ' l'Aérotec-Fellering ' et ' la Breymatt\_Oderen ' pour repli sur vent de vallée sud-fort .
 
-[![](http://3.bp.blogspot.com/-dzDZVOeD-jk/VEVCh12F2vI/AAAAAAAAAQQ/TTFTfEIHTV4/s1600/markstein.jpg)](http://3.bp.blogspot.com/-dzDZVOeD-jk/VEVCh12F2vI/AAAAAAAAAQQ/TTFTfEIHTV4/s1600/markstein.jpg)
+[![](a8042eca-01af-4804-9bd2-42ead19d432e.jpg)](a8042eca-01af-4804-9bd2-42ead19d432e.jpg)
 
   
 
@@ -72,18 +72,18 @@ Nous avions tout l'étage du bâtiment "les sapins'...que l'on voit sur la photo
 
 &nbsp;panoramique du déco:  
 
-[![](http://4.bp.blogspot.com/-3WZOh6eeFHE/VEffhkXCDoI/AAAAAAAAARk/1SEuC23pNck/s1600/markstein%2B2014%2Bpanoamique.jpg)](http://4.bp.blogspot.com/-3WZOh6eeFHE/VEffhkXCDoI/AAAAAAAAARk/1SEuC23pNck/s1600/markstein%2B2014%2Bpanoamique.jpg)
+[![](3c6f46f8-26d1-4734-9579-e360dcd2abda.jpg)](3c6f46f8-26d1-4734-9579-e360dcd2abda.jpg)
   
 
   
 
  &nbsp;notre jeune pilote Sylvain,qui aura doublé son nombre de grand vols (de 4 à&nbsp; 8)
 
-[![](http://2.bp.blogspot.com/-yqK1Krue24k/VEUvoxPqNEI/AAAAAAAAAPw/dm_YxrSFySs/s1600/2014-10-18%2Bd%C3%A9co%2BSSE%2Bdu%2BTreh.jpg)](http://2.bp.blogspot.com/-yqK1Krue24k/VEUvoxPqNEI/AAAAAAAAAPw/dm_YxrSFySs/s1600/2014-10-18%2Bd%C3%A9co%2BSSE%2Bdu%2BTreh.jpg)
+[![](74884f48-1c16-457d-82d7-2beb7908de5b.jpg)](74884f48-1c16-457d-82d7-2beb7908de5b.jpg)
   
 et Robert prêt à y aller  
 
-[![](http://3.bp.blogspot.com/-dzg0zgoFkqQ/VEUw1fSTIdI/AAAAAAAAAQE/lO2m4w0DHZc/s1600/Treh%2Bsu%2BOct%2B2014.jpg)](http://3.bp.blogspot.com/-dzg0zgoFkqQ/VEUw1fSTIdI/AAAAAAAAAQE/lO2m4w0DHZc/s1600/Treh%2Bsu%2BOct%2B2014.jpg)
+[![](5a7f15cc-4487-4be1-9293-bd029ad490bf.jpg)](5a7f15cc-4487-4be1-9293-bd029ad490bf.jpg)
 
   
 
@@ -105,7 +105,7 @@ et Robert prêt à y aller
 
  &nbsp;&nbsp;&nbsp; le groupe à&nbsp; ' l'Aérotec-Fellering '
 
-[![](http://3.bp.blogspot.com/-TUjZaFtMros/VEUvCEBtWHI/AAAAAAAAAPk/-eHs4QtbSNI/s1600/A%C3%A9rotech%2BOct%2B2014.jpg)](http://3.bp.blogspot.com/-TUjZaFtMros/VEUvCEBtWHI/AAAAAAAAAPk/-eHs4QtbSNI/s1600/A%C3%A9rotech%2BOct%2B2014.jpg)
+[![](25bf87e8-1692-4fec-b330-a07341f8eaa1.jpg)](25bf87e8-1692-4fec-b330-a07341f8eaa1.jpg)
   
   
 Villebon le 20 Octobre 2014&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; R.A.  

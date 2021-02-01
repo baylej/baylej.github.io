@@ -3,7 +3,7 @@ layout: post
 title: Journée de treuil à Mérobert   oct 2016
 date: '2017-01-16T07:22:00.000-08:00'
 author: robert le valentinois
-thumbnail: https://4.bp.blogspot.com/-yFGh0ol3ZQs/WHzkGttQK0I/AAAAAAAAA1g/45ofl1GvCR0XOF5FScVFAJ32Kl9wPHRCACLcB/s72-c/site%2BMerobert%2BEssonne.jpg
+thumbnail: c3907c57-0749-4b8d-8d8d-eb470208e7e5.jpg
 ---
 Janv. 2017
 
@@ -13,7 +13,7 @@ Le CDVL91 a tout mis en œuvre pour obtenir les différentes autorisations perme
 Mérobert deviendra (en cours) un site officiel pour la FFVL .  
 
 
-[![](https://4.bp.blogspot.com/-yFGh0ol3ZQs/WHzkGttQK0I/AAAAAAAAA1g/45ofl1GvCR0XOF5FScVFAJ32Kl9wPHRCACLcB/s640/site%2BMerobert%2BEssonne.jpg)](https://4.bp.blogspot.com/-yFGh0ol3ZQs/WHzkGttQK0I/AAAAAAAAA1g/45ofl1GvCR0XOF5FScVFAJ32Kl9wPHRCACLcB/s1600/site%2BMerobert%2BEssonne.jpg)
+[![](7ea007e9-1bf8-4446-baf5-9543e91a871a.jpg)](9d829f81-cb0e-4773-9832-a9db513f8b20.jpg)
 
  une vidéo de quelques minutes nous fait participer au départ en cross de:  
  &nbsp; **Martin Morlet et Julien Burnod&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;** le 9 octobre 2016   

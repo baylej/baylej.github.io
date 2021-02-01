@@ -3,7 +3,7 @@ layout: post
 title: Clécy, printemps 2017
 date: '2017-06-09T06:54:00.000-07:00'
 author: robert le valentinois
-thumbnail: https://4.bp.blogspot.com/-F7ucLetEKkw/WTqoOWCmvcI/AAAAAAAAA60/Dvp1Eg-50yoQ0-2y0HXYITjQ02brJLhQQCLcB/s72-c/Cl%25C3%25A9cy%2Blyc%25C3%25A9ens%2B%2Bprintemos%2B2017.jpg
+thumbnail: daf5dff8-c6df-4ab2-bb43-adf349820df0.jpg
 ---
 Clécy Printemps 2017  
   
@@ -19,7 +19,7 @@ résumé et témoignages des lycéens
 
  &nbsp;photo de groupe 
 
-[![](https://4.bp.blogspot.com/-F7ucLetEKkw/WTqoOWCmvcI/AAAAAAAAA60/Dvp1Eg-50yoQ0-2y0HXYITjQ02brJLhQQCLcB/s640/Cl%25C3%25A9cy%2Blyc%25C3%25A9ens%2B%2Bprintemos%2B2017.jpg)](https://4.bp.blogspot.com/-F7ucLetEKkw/WTqoOWCmvcI/AAAAAAAAA60/Dvp1Eg-50yoQ0-2y0HXYITjQ02brJLhQQCLcB/s1600/Cl%25C3%25A9cy%2Blyc%25C3%25A9ens%2B%2Bprintemos%2B2017.jpg)
+[![](b8e4189c-39f7-481e-be2d-dc07da1e1b70.jpg)](81cd8d19-f3a7-4a0d-afa7-184ce4c906d9.jpg)
 
 [Video clécy 2017&nbsp;](https://www.dropbox.com/s/yxzeiwpjtnxkggh/clecy2017_1.MP4?dl=0)  
   
