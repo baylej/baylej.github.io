@@ -161,7 +161,7 @@ et peut-être Laure qui s'est mouillé les pieds
 Il y en a bien d'autres, mais faut aussi songer au départ qui aura lieu en fin d'après-midi.  
 C'est curieux de voir que vouloir franchir le fossé, fixe ce fossé en point d'aboutissement.  
   
-<u><b>Bilan</b></u>: 54 vols dont 4 bi effectués par Alain Robin et Alain Bayle, pas mal tout çà ...  
+**Bilan**: 54 vols dont 4 bi effectués par Alain Robin et Alain Bayle, pas mal tout çà ...  
   
   
 

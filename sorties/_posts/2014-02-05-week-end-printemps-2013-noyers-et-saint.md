@@ -3,7 +3,7 @@ layout: post
 title: " Noyers, St-Martin 2013 , Clécy 2012 ,Cantal 2011"
 date: '2014-02-05T07:29:00.001-08:00'
 author: robert le valentinois
-thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoXOrxM/s72-c/130616+PP+PI+cdvl+YONNE+(28.2)+Tonnerre.jpg
+thumbnail: 063bbd4b-20de-496d-93fd-05c2b9d14857.jpg
 ---
 ## **&nbsp; Sortie &nbsp; Yonne&nbsp; Printemps 2013** &nbsp;
 
@@ -11,7 +11,7 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
   
   
 
-[![](http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoXOrxM/s1600/130616+PP+PI+cdvl+YONNE+(28.2)+Tonnerre.jpg)](http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoXOrxM/s1600/130616+PP+PI+cdvl+YONNE+(28.2)+Tonnerre.jpg)
+[![](1a3fa145-637b-4026-8e9a-926807aab2ce.jpg)](1a3fa145-637b-4026-8e9a-926807aab2ce.jpg)
   
 
 * * *
@@ -41,25 +41,25 @@ thumbnail: http://3.bp.blogspot.com/-wwk25CWVfzc/UvJXm0kNjMI/AAAAAAAAAIM/K7XaqoX
 
   
 
-[![](http://1.bp.blogspot.com/-pBQZ-3uFAVQ/U1Y8lIcIYmI/AAAAAAAAAKE/oCBbWd2ruqk/s1600/Normandie++participants+octobre+2012.jpg)](http://1.bp.blogspot.com/-pBQZ-3uFAVQ/U1Y8lIcIYmI/AAAAAAAAAKE/oCBbWd2ruqk/s1600/Normandie++participants+octobre+2012.jpg)
+[![](e7e42f17-e4f0-4e5c-9fac-53a02b7e9ce8.jpg)](e7e42f17-e4f0-4e5c-9fac-53a02b7e9ce8.jpg)
 
   
 
 **échauffement au déco de St Marc d'Ouilly**
 
-[![](http://2.bp.blogspot.com/-9vnzwA_RPO0/U1Y-BtUjpzI/AAAAAAAAAKU/yMaftcG8s9g/s1600/MEMO0020++.jpg)](http://2.bp.blogspot.com/-9vnzwA_RPO0/U1Y-BtUjpzI/AAAAAAAAAKU/yMaftcG8s9g/s1600/MEMO0020++.jpg)
+[![](4a2e6c0c-8820-4d52-91ec-e17d6ff43cd7.jpg)](4a2e6c0c-8820-4d52-91ec-e17d6ff43cd7.jpg)
 
   
 
 **Mèz au&nbsp; gonflage**
 
-[![](http://4.bp.blogspot.com/-3SxtKkeeNiA/U1Y9ZrTZgbI/AAAAAAAAAKM/Rbfzo0prlGs/s1600/M%C3%A9ziane+%C3%A0+St-Marc.jpg)](http://4.bp.blogspot.com/-3SxtKkeeNiA/U1Y9ZrTZgbI/AAAAAAAAAKM/Rbfzo0prlGs/s1600/M%C3%A9ziane+%C3%A0+St-Marc.jpg)
+[![](3b24779d-ff30-4394-9694-2d39b862c50d.jpg)](3b24779d-ff30-4394-9694-2d39b862c50d.jpg)
 
   
 
 **en vol&nbsp;**
 
-[![](http://3.bp.blogspot.com/-dvCP3fllvzU/U1Y-uRUXIaI/AAAAAAAAAKg/kmr7FhAn5XI/s1600/vue+de+la+pente.jpg)](http://3.bp.blogspot.com/-dvCP3fllvzU/U1Y-uRUXIaI/AAAAAAAAAKg/kmr7FhAn5XI/s1600/vue+de+la+pente.jpg)
+[![](319e778b-e9c4-41cf-b44e-c3ebd0ee52f3.jpg)](319e778b-e9c4-41cf-b44e-c3ebd0ee52f3.jpg)
 
 * * *
 

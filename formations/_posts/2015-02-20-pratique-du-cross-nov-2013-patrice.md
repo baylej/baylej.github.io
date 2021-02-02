@@ -10,15 +10,10 @@ thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dz
 
 [![](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)
   
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 14.0pt; mso-bidi-font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-    RENCONTRE – ECHANGES</span></u>**
+** RENCONTRE – ECHANGES**
 
-  
 
-  
-
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-    "LA PRATIQUE DU CROSS</span></u> **** Premiers pas vers le cross et perfectionnement&nbsp;**
+** LA PRATIQUE DU CROSS - Premiers pas vers le cross et perfectionnement&nbsp;**
 
   
 
@@ -33,8 +28,8 @@ thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dz
 
   
 
-**<u><span style='font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-    Programme de la matinée :</span></u> ****&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<u><span style="mso-spacerun: yes;"> </span>Avant tout, un petit déjeuner est proposé.</u>**
+** Programme de la matinée : **
+** Avant tout, un petit déjeuner est proposé.**
 
   
 
@@ -78,32 +73,16 @@ thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dz
 
   
 
- Dans la salle, quelques uns parleront de leur expérience à ce sujet, et d’autres pour la plupart le découvrent. **&nbsp;** On s’interroge sur la définition d’un émagramme, sur comment interpréter une carte aérienne avec toute cette symbolique… Pour y répondre, il semble utile de se revoir.
+ Dans la salle, quelques uns parleront de leur expérience à ce sujet, et d’autres pour la plupart le découvrent.  On s’interroge sur la définition d’un émagramme, sur comment interpréter une carte aérienne avec toute cette symbolique… Pour y répondre, il semble utile de se revoir.
 
   
 
  La réunion se terminera vers 13 heures, avec une collation avant le départ.
 
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-  <span style="text-decoration: none;"><br></span></span></u>**
-
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-  <span style="text-decoration: none;"><br></span></span></u>**
-
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-  <span style="text-decoration: none;"><br></span></span></u>**
 
  Cette matinée initiée par le CDVL 91, aura été un franc succès. Patrice a su avec simplicité et pragmatisme parler du sujet, et lancer la discussion. Les participants déjà contents de se retrouver, ont profité des narrations de chacun et des questions posées.
 
-  
+** Robert ALAKIAN &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Alain ROBIN**
 
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-  Robert ALAKIAN</span></u> ****&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<u>Alain ROBIN</u>**  
-  
 
 [![](http://1.bp.blogspot.com/-NlVrZkNM3aU/UqXlO3MnUsI/AAAAAAAAAGo/bXlgCQi1rBI/s640/131116+PPcdvl91+IniCROSS+AH+(1).JPG)](http://1.bp.blogspot.com/-NlVrZkNM3aU/UqXlO3MnUsI/AAAAAAAAAGo/bXlgCQi1rBI/s1600/131116+PPcdvl91+IniCROSS+AH+%281%29.JPG)
-
-  
-
-  
-

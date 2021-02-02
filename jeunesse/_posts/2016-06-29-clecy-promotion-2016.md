@@ -33,31 +33,29 @@ _«&nbsp;Une expérience grisante
   
  Qui l’aurait cru ? Sauter d’une falaise, ça fait partie de ces trucs qu’on envisage souvent, de loin, comme une idée saugrenue.  
  Les mots me semblent trop ordinaires pour retranscrire fidèlement le maelstrom de sensations contradictoires éprouvées lors du vol. Il faut le vivre pour le comprendre !&nbsp;»_  
-  _<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'></span></u>_
 
-_<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'><span style="mso-tab-count: 1;">           </span></span></u>__<u><span style='font-family: "cambria" , "serif"; font-size: 10.0pt; line-height: 101%;'>Amina - 17 ans – 5
-  vols.</span></u>_
+_Amina - 17 ans – 5 vols._
 
   
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Armand</span></u>&nbsp;: Expérience enrichissante&nbsp;! J’ai découvert le monde aérien. Petite appréhension au début mais après ça allait. Je conseille vivement à ceux qui en ont la chance de tester.&nbsp;
+_Armand_ : Expérience enrichissante&nbsp;! J’ai découvert le monde aérien. Petite appréhension au début mais après ça allait. Je conseille vivement à ceux qui en ont la chance de tester.&nbsp;
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Timothée</span></u>&nbsp;: Très bon voyage&nbsp;! Je n’en reviens pas&nbsp;! J’ai volé&nbsp;! C’est une expérience de fou&nbsp;! je n’ai pas trop galéré pour une fois&nbsp;! Ce sport est trop bon, on ressent des sensations incroyables&nbsp;! Pour ceux qui n’ont pas eu la chance de venir ils ont vraiment raté quelque chose&nbsp;!
+_Timothée_ : Très bon voyage&nbsp;! Je n’en reviens pas&nbsp;! J’ai volé&nbsp;! C’est une expérience de fou&nbsp;! je n’ai pas trop galéré pour une fois&nbsp;! Ce sport est trop bon, on ressent des sensations incroyables&nbsp;! Pour ceux qui n’ont pas eu la chance de venir ils ont vraiment raté quelque chose&nbsp;!
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Juliette</span></u>&nbsp;: Superbe découverte avec des sensations de folie. Même si j’étais très stressé au début j’ai finalement volé 5 fois&nbsp;! Merci à toutes les personnes qui ont permis ce voyage.
+_Juliette_ : Superbe découverte avec des sensations de folie. Même si j’étais très stressé au début j’ai finalement volé 5 fois&nbsp;! Merci à toutes les personnes qui ont permis ce voyage.
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Laure</span></u>&nbsp;: Ce petit séjour de 5 jours était une expérience hors du commun. Tous les lycées ne proposent pas cette activité. Bonne entente au sein du groupe. Tout le monde participe et s’entraide. Juste génial, inoubliable et de bonne rencontre notamment des moniteurs qui nous ont accompagnés tout au long de ce voyage dans les airs.
+_Laure_ : Ce petit séjour de 5 jours était une expérience hors du commun. Tous les lycées ne proposent pas cette activité. Bonne entente au sein du groupe. Tout le monde participe et s’entraide. Juste génial, inoubliable et de bonne rencontre notamment des moniteurs qui nous ont accompagnés tout au long de ce voyage dans les airs.
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Baptiste</span></u>&nbsp;: Un stage inoubliable, très bien sécurisé, qui nous fais entrer et progresser au sein de l’univers du parapente avec des vols magnifiques si le temps nous le permet.
+_Baptiste_ : Un stage inoubliable, très bien sécurisé, qui nous fais entrer et progresser au sein de l’univers du parapente avec des vols magnifiques si le temps nous le permet.
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Solène</span></u>&nbsp;: Super stage de découverte, bonne ambiance de groupe, moniteurs super sympas. C’est vraiment superbe que des passionnés donnent de leur temps pour initier des jeunes. Si vous avez l’occasion de le faire ne la laisser pas passer. Des moments dans les airs inoubliables. Voyage au top.&nbsp;
+_Solène_ : Super stage de découverte, bonne ambiance de groupe, moniteurs super sympas. C’est vraiment superbe que des passionnés donnent de leur temps pour initier des jeunes. Si vous avez l’occasion de le faire ne la laisser pas passer. Des moments dans les airs inoubliables. Voyage au top.&nbsp;
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Hermès</span></u>&nbsp;: Bonjour, Hermès, 15 ans. Ce stage de parapente m’a permis de prendre beaucoup de plaisir et de sensations. En effet quand on est en l’air on a une sensation de liberté et de pouvoir divin. On se sent comme un oiseau dans le ciel.
+_Hermès_ : Bonjour, Hermès, 15 ans. Ce stage de parapente m’a permis de prendre beaucoup de plaisir et de sensations. En effet quand on est en l’air on a une sensation de liberté et de pouvoir divin. On se sent comme un oiseau dans le ciel.
 
-<u><span style='font-family: "cambria" , "serif"; font-size: 12.0pt; line-height: 101%;'>Emma</span></u>&nbsp;: Séjour inoubliable, superbe expérience. Une bonne ambiance de groupe. Un moniteur génial qui explique super bien, une sensation de légèreté une fois dans les airs, à faire une fois dans sa vie pour les amoureux de sensations fortes, super voyage&nbsp;!!!
+_Emma_ : Séjour inoubliable, superbe expérience. Une bonne ambiance de groupe. Un moniteur génial qui explique super bien, une sensation de légèreté une fois dans les airs, à faire une fois dans sa vie pour les amoureux de sensations fortes, super voyage&nbsp;!!!
 
-Ce qui m'a plu dans ce stage c'est déjà d'avoir pu partager cette expérience avec d'autres élèves d'un autre lycée et l'esprit collectif durant le séjour dans le gîte ensuite ce que j'ai aimé dans le parapente c'est le fait de se sentir libre le fait de volé ce qui est inhumain on ressent deux émotions l'or d'un vol la joie la facination en voyant le paysage d'un autre angle de vie mais aussi la peut car nous sommes notre propre pilote de la voile et faut rester concentré sur sa trajectoire. Je trouve que ce projet de faire découvrir le parapente à des lycéens est très bien et génial surtout qu'il y avait des personnes qui prenaient de leur temps libre par joie de partager leur passion!  
-<u>Laureline.</u>
+_Laureline_ : Ce qui m'a plu dans ce stage c'est déjà d'avoir pu partager cette expérience avec d'autres élèves d'un autre lycée et l'esprit collectif durant le séjour dans le gîte ensuite ce que j'ai aimé dans le parapente c'est le fait de se sentir libre le fait de volé ce qui est inhumain on ressent deux émotions l'or d'un vol la joie la facination en voyant le paysage d'un autre angle de vie mais aussi la peut car nous sommes notre propre pilote de la voile et faut rester concentré sur sa trajectoire. Je trouve que ce projet de faire découvrir le parapente à des lycéens est très bien et génial surtout qu'il y avait des personnes qui prenaient de leur temps libre par joie de partager leur passion!  
+
 
   
 
@@ -83,7 +81,7 @@ C'était une excellente semaine...
  stage. Ce voyage est une parenthèse, une expérience incroyable à faire  
  partager.
 
-<u><span style='font-family: "cambria" , "serif"; mso-bidi-font-family: Cambria;'>Aure</span></u>
+_Aure_
 
   
 

@@ -42,7 +42,7 @@ Nous avions tout l'étage du bâtiment "les sapins'...que l'on voit sur la photo
 
   
 
-<u>Journée de Samedi</u> :&nbsp; identification des atterros:&nbsp; ' l'Aérotec-Fellering ' et ' la Breymatt\_Oderen ' pour repli sur vent de vallée sud-fort .
+_Journée de Samedi_ :&nbsp; identification des atterros:&nbsp; ' l'Aérotec-Fellering ' et ' la Breymatt\_Oderen ' pour repli sur vent de vallée sud-fort .
 
 [![](a8042eca-01af-4804-9bd2-42ead19d432e.jpg)](a8042eca-01af-4804-9bd2-42ead19d432e.jpg)
 
@@ -91,7 +91,7 @@ et Robert prêt à y aller
 
   
 
-<u>Dimanche matin</u>, très beau ciel, mais les premières brumes coulent dans l'air et les nuelles se forment déjà dans le vent.
+_Dimanche matin_, très beau ciel, mais les premières brumes coulent dans l'air et les nuelles se forment déjà dans le vent.
 
  Après libération de nos chambres, nous retournons à l'Aérotec prendre la température....
 
@@ -111,12 +111,4 @@ et Robert prêt à y aller
 Villebon le 20 Octobre 2014&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; R.A.  
   
 en bonus, vidéo d'Alain Bayle&nbsp; sur page sorties-organisées / interclubs.  
-  
-  
-============================================================================  
 
-  
-
-  
-  
-  

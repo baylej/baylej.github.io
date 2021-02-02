@@ -33,22 +33,22 @@ dimanche 18: le vent a pratiquement disparu, (5 à 10kmh) orientation sensibleme
 Le matin, seuls Robert et Erwan décollent, en dos voile, pour un vol balistique de mise en train.  
 L'après-midi, sera nettement meilleure, car au vent resté faible, s'ajoute un bonne brise de pente. Le vent s'oriente un peu plus Ouest, il suffit de faire quelques pas à droite, pour trouver le déco qui va. Ce sera une journée magnifique avec gain de 600 à 1100m&nbsp; tant les thermiques étaient présents.  
 
-[![](http://1.bp.blogspot.com/-5xpkVySU_uU/U39pVMuG2iI/AAAAAAAAAL4/uRnx8T4PJbc/s1600/20140518_d%C3%A9co+Poupet.jpg)](http://1.bp.blogspot.com/-5xpkVySU_uU/U39pVMuG2iI/AAAAAAAAAL4/uRnx8T4PJbc/s1600/20140518_d%C3%A9co+Poupet.jpg)
+[![](ff2b646f-8425-4e20-be79-cd45ae2dcb8d.jpg)](ff2b646f-8425-4e20-be79-cd45ae2dcb8d.jpg)
 
 [  
-](http://2.bp.blogspot.com/-jPmOOsIKIQI/U39krZ5kISI/AAAAAAAAAK8/qXFAg_4YvEM/s1600/20140518_d%C3%A9co+Poupet.jpg)
+](1fca4352-38ca-4481-9895-41f17d35c4d0.jpg)
 Au déco, une école est déjà présente, nous arrivons, il y aura beaucoup de biplaces, un delta et des gens venus pic-niquer, dans un espace aménagé voisin, et assister au spectacle du vol libre.  
   
 L'atterro sera un champ de foin prêt à être ramassé,  
 
-[![](http://3.bp.blogspot.com/-CVbAk9jAqAI/U39pJxS5BKI/AAAAAAAAALw/1diGF42KvVc/s1600/20140518_atterro+poupet.jpg)](http://3.bp.blogspot.com/-CVbAk9jAqAI/U39pJxS5BKI/AAAAAAAAALw/1diGF42KvVc/s1600/20140518_atterro+poupet.jpg)
+[![](fd146c4f-8d51-4080-bc78-dfbce0f50f33.jpg)](fd146c4f-8d51-4080-bc78-dfbce0f50f33.jpg)
 
 [  
 ](d4ccd0c6-f742-4d27-a397-a8b7a7fcce4e.jpg)
 &nbsp;L'herbe sèche tire au jaune, se fondant sur la couleur de la voile, attention aux clefs...hum!  
   
 
-[![](http://1.bp.blogspot.com/-1qXrOTZ8SQU/U39o-R88rZI/AAAAAAAAALo/A4CH3bn4XR0/s1600/20140518_en+attendant+navette+Poupet.jpg)](http://1.bp.blogspot.com/-1qXrOTZ8SQU/U39o-R88rZI/AAAAAAAAALo/A4CH3bn4XR0/s1600/20140518_en+attendant+navette+Poupet.jpg)
+[![](540febf9-0cc5-4c9b-8c13-4a519e974cb6.jpg)](540febf9-0cc5-4c9b-8c13-4a519e974cb6.jpg)
 
 [  
 ](2a8e66ae-a4fc-40e5-b62b-1f0443383454.jpg)
@@ -56,7 +56,7 @@ En attendant la navette: JeanMarc, Karim, R., Didier, Erwan.&nbsp; et Nadir à l
   
 Bon! si on mettait le groupe:  
 
-[![](http://4.bp.blogspot.com/-eDwyAxy8gYQ/U39n-_YAUqI/AAAAAAAAALc/AY19b9GVrBQ/s1600/groupe+Poupet+Mai+2014.jpg)](http://4.bp.blogspot.com/-eDwyAxy8gYQ/U39n-_YAUqI/AAAAAAAAALc/AY19b9GVrBQ/s1600/groupe+Poupet+Mai+2014.jpg)
+[![](9da0a364-f678-41fa-bdee-6e7711eb7ee8.jpg)](9da0a364-f678-41fa-bdee-6e7711eb7ee8.jpg)
   
   
 Retours: Alain, partira vers 17h30, nous partirons à 18h30  

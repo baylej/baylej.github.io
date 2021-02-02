@@ -3,17 +3,15 @@ layout: post
 title: 'Formation aux cartes aéro. Fév. 2015 Martin Morlet '
 date: '2015-02-20T07:03:00.002-08:00'
 author: robert le valentinois
-thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s72-c/entete+cdvl91.jpg
+thumbnail: 4cf7a085-1fdd-4c38-8e5e-120c4d867d6f.jpg
 ---
   
   
 
-[![](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)
+[![](9c491ef4-2b63-4eb7-8533-66083d4a36d1.jpg)](9c491ef4-2b63-4eb7-8533-66083d4a36d1.jpg)
   
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 14.0pt; mso-bidi-font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-    La Pratique du Cross  </span></u>**  
-**<u><span style='color: maroon; font-family: "Arial","sans-serif"; font-size: 14.0pt; mso-bidi-font-size: 10.0pt; mso-fareast-font-family: "Times New Roman"; mso-fareast-language: FR;'>
-    Formation aux cartes aéronautiques, préparation d'une Navigation de vol libre</span></u>**
+** La Pratique du Cross**  
+** Formation aux cartes aéronautiques, préparation d'une Navigation de vol libre**
 
   
 
