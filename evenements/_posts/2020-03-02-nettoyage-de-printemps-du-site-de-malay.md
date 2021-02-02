@@ -29,7 +29,7 @@ thumbnail: 06a6e9a6-bbc4-47a5-84a1-c27fefa6a92b.jpg
 &nbsp;&nbsp;&nbsp; Nous voulons remercier la Mairie de Malay le Grand qui a mis à notre disposition une salle afin de finir cette matinée de manière conviviale, autour d'un pique nique, à l'abri des intempéries .  
   
 
-[![](https://1.bp.blogspot.com/-0LJsNcG1tnw/XlzuFGeukkI/AAAAAAAADYk/wWZq_tBJOBIOBpBYxfotc6lICMdn_YssACEwYBhgL/s640/20200229_malay1.jpeg)](https://1.bp.blogspot.com/-0LJsNcG1tnw/XlzuFGeukkI/AAAAAAAADYk/wWZq_tBJOBIOBpBYxfotc6lICMdn_YssACEwYBhgL/s1600/20200229_malay1.jpeg)
+[![](79f83128-0087-41a9-8e2b-163a757d7fd4.jpeg)](5f289bbc-1020-4a94-bc12-07ef61c68dec.jpeg)
 
   
 

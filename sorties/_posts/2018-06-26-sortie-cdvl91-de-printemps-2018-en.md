@@ -62,7 +62,7 @@ Déco de Vierville: Renaud J. des Migrateurs, est venu en voisin&nbsp; nous donn
 
   
 
-[![](https://2.bp.blogspot.com/-xcUn6PmaGW0/WzEaS9q3WlI/AAAAAAAAB2U/ZnoXreHyldAHPxsk5LjIqXWDn9Gji6FqwCEwYBhgL/s640/commes%2B1806%2Bx.png)](https://2.bp.blogspot.com/-xcUn6PmaGW0/WzEaS9q3WlI/AAAAAAAAB2U/ZnoXreHyldAHPxsk5LjIqXWDn9Gji6FqwCEwYBhgL/s1600/commes%2B1806%2Bx.png)
+[![](8c5b516d-d260-4a60-856a-606af72b7170.png)](bf01009b-b5c0-43d1-b02e-a2a794144445.png)
 
 au loin, Port-en-Bessin  
 

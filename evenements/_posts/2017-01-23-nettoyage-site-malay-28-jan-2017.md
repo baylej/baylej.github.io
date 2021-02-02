@@ -3,7 +3,7 @@ layout: post
 title: Entretien Sites voisins
 date: '2017-01-23T05:05:00.002-08:00'
 author: robert le valentinois
-thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEauCHl5IMxY7UiFTeLqvtIQViuU0dwCLcBGAs/s72-c/image3.jpeg
+thumbnail: 7c073db3-8141-4c52-a468-118dedeeb249.jpeg
 ---
 ## Coup de printemps en Bourgogne site d'ATHIE
 
@@ -14,7 +14,7 @@ thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEau
 ### Aujourd'hui, nous sommes allés aider le club "AST - "Les Aigles de Tonnerre"  
  (Yonne) à débroussailler le site d'Athie (un vrai chantier).
 
-[![](https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEauCHl5IMxY7UiFTeLqvtIQViuU0dwCLcBGAs/s640/image3.jpeg)](https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEauCHl5IMxY7UiFTeLqvtIQViuU0dwCLcBGAs/s1600/image3.jpeg)  
+[![](9a05d3b5-0c26-43a2-ba29-ccd540ca52fe.jpeg)](c5012709-78c9-41ce-a4bc-ef04ce22411a.jpeg)  
  Quand nous sommes arrivés (une petite heure en retard en bons parisiens),  
  les 3 mécaniciens-rotofileurs avaient bien bossé !  
  Nous avons donc commencé le ratelage avec nos gros bras musclés (comme des  
@@ -22,12 +22,12 @@ thumbnail: https://4.bp.blogspot.com/-U1apK6Ts6mk/WpQw28kNuEI/AAAAAAAABbo/w-mEau
  S'est ensuivi une deuxième couche de chaque activité, en plus de l’élagage  
  et étêtage, pour finir de tondre cette magnifique moquette ! 
 
-[![](https://1.bp.blogspot.com/-gBViKL6OqLk/WpQwz6iAuUI/AAAAAAAABbg/iSSWNfqFVD4QOMctU0D1WrMdLsmwb6wyACEwYBhgL/s640/image1.jpeg)](https://1.bp.blogspot.com/-gBViKL6OqLk/WpQwz6iAuUI/AAAAAAAABbg/iSSWNfqFVD4QOMctU0D1WrMdLsmwb6wyACEwYBhgL/s1600/image1.jpeg)
+[![](9013b697-2fe4-4d82-864f-672afb6cc5da.jpeg)](da8f5bf1-0a88-4197-93b7-aa3c8f8cebdd.jpeg)
 
  Un petit pic-nic de printemps et une discussion cross (chasse et pêche) est  
  venu clôturer cette belle journée ensoleillée.
 
-[![](https://2.bp.blogspot.com/-Ir4tIUWb_3M/WpQw9-Ir_iI/AAAAAAAABbs/l1fSmLrkc3wT24kTgq8G6EZ3k8pL-iQyACEwYBhgL/s640/image4.jpeg)](https://2.bp.blogspot.com/-Ir4tIUWb_3M/WpQw9-Ir_iI/AAAAAAAABbs/l1fSmLrkc3wT24kTgq8G6EZ3k8pL-iQyACEwYBhgL/s1600/image4.jpeg)
+[![](5a5935f4-368b-4c42-9d21-c9f98382d40d.jpeg)](d61b4a92-da67-43a0-b985-ced6b1809c22.jpeg)
 
 ### ont contribué: les Piafs, les Migrateurs et LADS
 

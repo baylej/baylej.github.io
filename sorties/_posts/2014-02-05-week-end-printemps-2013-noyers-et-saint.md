@@ -333,11 +333,11 @@ Accès : du centre du village prendre direction le camping, vers l’est. Le ter
 
  Départ matinal du &nbsp;Gite pour une belle journée de vols 
 
-[![](http://1.bp.blogspot.com/-4pKuoYTFyIU/VOupY0H1sjI/AAAAAAAAAbg/exZGip8wgEY/s1600/IMG_4423.JPG)](http://1.bp.blogspot.com/-4pKuoYTFyIU/VOupY0H1sjI/AAAAAAAAAbg/exZGip8wgEY/s1600/IMG_4423.JPG)
+[![](8c4aa5f6-c6b9-4d8c-9628-ac19298bf5e9.jpg)](8c4aa5f6-c6b9-4d8c-9628-ac19298bf5e9.jpg)
 
-[![](http://2.bp.blogspot.com/-bzho7PFvFTw/VOupb0sTF0I/AAAAAAAAAb8/wQkys870Mkw/s1600/IMG_4465.JPG)](http://2.bp.blogspot.com/-bzho7PFvFTw/VOupb0sTF0I/AAAAAAAAAb8/wQkys870Mkw/s1600/IMG_4465.JPG)
+[![](36bac8a7-3478-46e3-903e-92e361c3f127.jpg)](36bac8a7-3478-46e3-903e-92e361c3f127.jpg)
 
-[![](http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG)](http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG)
+[![](51506ce6-94dc-4f69-a62d-05e800cfbe20.jpg)](51506ce6-94dc-4f69-a62d-05e800cfbe20.jpg)
 
   
 
@@ -381,9 +381,9 @@ Accès : du centre du village prendre direction le camping, vers l’est. Le ter
 
   
 
-[](http://1.bp.blogspot.com/-hgvJYl7JbAY/VOupbxINvaI/AAAAAAAAAcA/r7ssWbAzhfk/s1600/IMG_4477.JPG)
+[](51506ce6-94dc-4f69-a62d-05e800cfbe20.jpg)
 
-[![](http://4.bp.blogspot.com/-DhY7F13o6TA/VOupZRpXkaI/AAAAAAAAAbo/CHZT6du6cJc/s1600/IMG_4449.JPG)](http://4.bp.blogspot.com/-DhY7F13o6TA/VOupZRpXkaI/AAAAAAAAAbo/CHZT6du6cJc/s1600/IMG_4449.JPG)
+[![](52b783f9-ff8c-4c63-92ab-ec4dc70f437e.jpg)](52b783f9-ff8c-4c63-92ab-ec4dc70f437e.jpg)
 
   
 
@@ -405,7 +405,7 @@ Accès : du centre du village prendre direction le camping, vers l’est. Le ter
 
   
 
-[![](http://3.bp.blogspot.com/-NlcKI2jhgQY/VOupYNVlARI/AAAAAAAAAbY/HKK20pQWzW4/s1600/IMG_4440.JPG)](http://3.bp.blogspot.com/-NlcKI2jhgQY/VOupYNVlARI/AAAAAAAAAbY/HKK20pQWzW4/s1600/IMG_4440.JPG)
+[![](b293203d-937b-46d8-ba41-53a2ad947a2b.jpg)](b293203d-937b-46d8-ba41-53a2ad947a2b.jpg)
 
   
 
@@ -415,7 +415,7 @@ Accès : du centre du village prendre direction le camping, vers l’est. Le ter
 
  Le groupe au complet&nbsp; 
 
-[![](http://2.bp.blogspot.com/-JPQIFNkrhOg/VOupcmDr4mI/AAAAAAAAAcM/eviq3muyusg/s1600/IMG_4485.JPG)](http://2.bp.blogspot.com/-JPQIFNkrhOg/VOupcmDr4mI/AAAAAAAAAcM/eviq3muyusg/s1600/IMG_4485.JPG)
+[![](a664090a-3c05-4dbe-830b-40fb85811396.jpg)](a664090a-3c05-4dbe-830b-40fb85811396.jpg)
 
   
 

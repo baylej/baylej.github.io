@@ -3,7 +3,7 @@ layout: post
 title: Normandie de Pentecôte 2017
 date: '2017-04-26T04:49:00.000-07:00'
 author: robert le valentinois
-thumbnail: https://3.bp.blogspot.com/-Zn5U_Sm3Yhw/WT6r5U8IbwI/AAAAAAAAA7E/bE2gPu4AHZMu6zpyn2ZP8UE3tLyFGqUCwCEw/s72-c/Normandie%2BCDVL91_2017%2BPort%2Ben%2BBessin%2B%25282%2529.jpeg
+thumbnail: 027d7f6c-2244-4b49-9c26-284eff138b69.jpeg
 ---
 haut ---&gt;: Pierre Larchevêque,Joël Jodie, Christian, Alex Richaud et Mme, R@.  
 bas ---&gt;: William Baptiste, Denis Petermann, Florence de Raucourt, Meziane , Vincent Lemaire  
@@ -41,7 +41,7 @@ Répartis en trois voitures, nous avons décidé en cours de route d'aller direc
  les participants:  
  Joël J., Vincent L., Florence d., Lydie et Alexandre R., Denis P., Pierre L, Robert@, William&nbsp; B.  
 
-[![](https://3.bp.blogspot.com/-Zn5U_Sm3Yhw/WT6r5U8IbwI/AAAAAAAAA7E/bE2gPu4AHZMu6zpyn2ZP8UE3tLyFGqUCwCEw/s640/Normandie%2BCDVL91_2017%2BPort%2Ben%2BBessin%2B%25282%2529.jpeg)](https://3.bp.blogspot.com/-Zn5U_Sm3Yhw/WT6r5U8IbwI/AAAAAAAAA7E/bE2gPu4AHZMu6zpyn2ZP8UE3tLyFGqUCwCEw/s1600/Normandie%2BCDVL91_2017%2BPort%2Ben%2BBessin%2B%25282%2529.jpeg)
+[![](9d95a8ba-d334-4b9a-b048-73b30c7bc131.jpeg)](aae7195c-9811-494e-9c7f-30f9a0e513fa.jpeg)
 Au repas du soir, nous avons décidé d'en rester là avec la météo annoncée pour lundi, et choisi de libérer le lendemain matin,&nbsp; les lieux et de rentrer en passant par Clécy.  
   
 
