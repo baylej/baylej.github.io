@@ -3,12 +3,12 @@ layout: post
 title: Pratique du cross Nov 2013 Patrice Quillet
 date: '2015-02-20T07:00:00.004-08:00'
 author: robert le valentinois
-thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s72-c/entete+cdvl91.jpg
+thumbnail: b244d858-1f62-4353-bbe2-528f09423696.jpg
 ---
   
   
 
-[![](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)](http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dzR2vI/s1600/entete+cdvl91.jpg)
+[![](f9149aae-2d58-496d-8a71-6cd55254b42e.jpg)](f9149aae-2d58-496d-8a71-6cd55254b42e.jpg)
   
 ** RENCONTRE – ECHANGES**
 
@@ -85,4 +85,4 @@ thumbnail: http://4.bp.blogspot.com/-gaWZ4TmUUHI/UqXuD9LFXSI/AAAAAAAAAG4/w4Z40dz
 ** Robert ALAKIAN &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Alain ROBIN**
 
 
-[![](http://1.bp.blogspot.com/-NlVrZkNM3aU/UqXlO3MnUsI/AAAAAAAAAGo/bXlgCQi1rBI/s640/131116+PPcdvl91+IniCROSS+AH+(1).JPG)](http://1.bp.blogspot.com/-NlVrZkNM3aU/UqXlO3MnUsI/AAAAAAAAAGo/bXlgCQi1rBI/s1600/131116+PPcdvl91+IniCROSS+AH+%281%29.JPG)
+[![](0a25b08a-aef6-4159-9313-884987f7c412.jpg)](0ea6c19f-c705-4afe-aa50-b711a374459b.jpg)

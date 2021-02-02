@@ -3,7 +3,7 @@ layout: post
 title: 'Formation Premiers secours PSC1 du 29Nov 2014 par La Protection Civile '
 date: '2014-12-03T07:07:00.001-08:00'
 author: robert le valentinois
-thumbnail: http://4.bp.blogspot.com/-b13qKQZ3XmM/VH8mdE0aEQI/AAAAAAAAAR4/fWe6owJiZBA/s72-c/BILD2173%2B(1).JPG
+thumbnail: e89571d6-979a-423c-bdfc-1fe2938dea21.jpg
 ---
 ### Formation aux Premiers Secours PSC1 du 29 Novembre 2014&nbsp; pour le CDVL91
 
@@ -16,10 +16,10 @@ Gisèle, formatrice à la Protection Civile, m’a fait un compte rendu&nbsp;;)&
 
 Promotion PSC1&nbsp; Novembre 2014
 
-[![](http://4.bp.blogspot.com/-b13qKQZ3XmM/VH8mdE0aEQI/AAAAAAAAAR4/fWe6owJiZBA/s1600/BILD2173%2B(1).JPG)](http://4.bp.blogspot.com/-b13qKQZ3XmM/VH8mdE0aEQI/AAAAAAAAAR4/fWe6owJiZBA/s1600/BILD2173%2B(1).JPG)
+[![](8318a6bf-df76-4a28-918e-42901254564e.jpg)](8318a6bf-df76-4a28-918e-42901254564e.jpg)
   
 
-[![](http://1.bp.blogspot.com/-rvdCAGf5kRg/VH8mhq4sNeI/AAAAAAAAASA/Id2upd-UVNo/s1600/BILD2174%2B(1).JPG)](http://1.bp.blogspot.com/-rvdCAGf5kRg/VH8mhq4sNeI/AAAAAAAAASA/Id2upd-UVNo/s1600/BILD2174%2B(1).JPG)
+[![](4e71c89c-6155-44d5-9c62-688dd54c9506.jpg)](4e71c89c-6155-44d5-9c62-688dd54c9506.jpg)
   
 
   
